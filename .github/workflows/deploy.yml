@@ -21,7 +21,7 @@ jobs:
         with:
           version: 7
           run_install: |
-            args: [--frozen-lockfile]
+            args: [--frozen-lockfile, --strict-peer-dependencies]
       - name: Build website
         run: pnpm run build
 
