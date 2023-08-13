@@ -33,6 +33,7 @@
   font-family: GothamMedium;
   src: url(/font/GothamMedium.ttf) format("truetype")
 }
+
 * {
   font-family: GothamMedium,sans-serif
 }
