@@ -30,8 +30,8 @@ export default function Home(): JSX.Element {
   const {siteConfig} = useDocusaurusContext();
   return (
     <Layout
-      title={"Welcome"}
-      description="The homeplace">
+      title={"Landing"}
+      description="Bringing you all the latest news from Teethyz Dentist!">
       <HomepageHeader />
       <main>
         <HomepageFeatures />
