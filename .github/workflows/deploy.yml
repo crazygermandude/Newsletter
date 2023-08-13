@@ -20,9 +20,8 @@ jobs:
         name: Install pnpm
         with:
           version: 7
-          run_install: false
-      - name: Install dependencies
-        run: pnpm install --frozen-lockfile
+          run_install: |
+            args: [--frozen-lockfile]
       - name: Build website
         run: pnpm run build
 
