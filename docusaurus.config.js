@@ -7,7 +7,7 @@ const darkCodeTheme = require('prism-react-renderer/themes/dracula');
 /** @type {import('@docusaurus/types').Config} */
 const config = {
   title: 'Teethyz Newsletter',
-  tagline: 'Bringing you all the latest news from Teethyz Dentist',
+  tagline: 'Bringing you all the latest news from Teethyz Dentist!',
   favicon: 'img/favicon.ico',
 
   // Set the production url of your site here
