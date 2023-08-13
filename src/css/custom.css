@@ -28,3 +28,11 @@
   --ifm-color-primary-lightest: #fdde70;
   --docusaurus-highlighted-code-line-bg: rgba(0, 0, 0, 0.3);
 }
+
+@font-face {
+  font-family: GothamMedium;
+  src: url(/font/GothamMedium.ttf) format("truetype")
+}
+* {
+  font-family: GothamMedium,sans-serif
+}
