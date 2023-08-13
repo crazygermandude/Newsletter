@@ -7,7 +7,7 @@ const darkCodeTheme = require('prism-react-renderer/themes/dracula');
 /** @type {import('@docusaurus/types').Config} */
 const config = {
   title: 'Teethyz Newsletter',
-  tagline: 'Dinosaurs are cool',
+  tagline: 'Bringing you all the latest news from Teethyz Dentist',
   favicon: 'img/favicon.ico',
 
   // Set the production url of your site here
@@ -56,12 +56,12 @@ const config = {
     /** @type {import('@docusaurus/preset-classic').ThemeConfig} */
     ({
       // Replace with your project's social card
-      image: 'img/docusaurus-social-card.jpg',
+      image: 'img/TeethyzV3Icon.png',
       navbar: {
-        title: 'My Site',
+        title: 'Teethyz Newsletter',
         logo: {
-          alt: 'My Site Logo',
-          src: 'img/logo.svg',
+          alt: 'Teethyz Logo',
+          src: 'img/TeethyzV3Icon.png',
         },
         items: [
           {
@@ -75,15 +75,6 @@ const config = {
       footer: {
         style: 'dark',
         links: [
-          {
-            title: 'Docs',
-            items: [
-              {
-                label: 'Tutorial',
-                to: '/docs/intro',
-              },
-            ],
-          },
           {
             title: 'Community',
             items: [
