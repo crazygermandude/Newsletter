@@ -6,4 +6,4 @@ sidebar_position: 1
 
 Hello, and welcome to the Teethyz Newsletter official site.
 
-![Testing](/img/docusaurus.png)
+![Testing](/img/TeethyzV3Logo.png)
