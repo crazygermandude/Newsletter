@@ -17,3 +17,13 @@ Ello everyone! Welcome to our August 2023 Newsletter aka our first published new
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂  
+
+![Tiktok Trend](https://cdn.discordapp.com/attachments/1094801817881280592/1141333397470453851/Untitled-1.png)  
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂  
+
+Oh! The newsletter team is back? Our Social Assistants Emma & Emily have created a tiktok trend just for this occassion! And hey, maybe you could give it a like on our official Teethyz Dentist TikTok too. Cheers for the revival! 
+
+(im inserting the video later if i can)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂  
