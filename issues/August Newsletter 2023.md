@@ -37,16 +37,16 @@ Oh! The newsletter team is back? Our Social Assistants Emma & Emily have created
 
 ✄ ✉ Hey, Teethyz, are we ready to go back to school? Doesn't matter, we don't have a choice! Anyways, let's get in the school mood and try to get educated. Here are some basic tips you should consider to make this school year better than last! 
 
-❶ Come prepared (makes your life earlier).
-➋ Have a positive attitude.
-➌ Do your work.
-➍ Wear deodorant (don't be that one stenchy person)..
-➎ Use your time wisely (it flies by).
-➏ Don't be afraid to ask questions (it's better to get help than to struggle).
-➐ Use different studying habits.
-➑ Take small breaks!
-➒ Don't be afraid to be social.
-➓ Try your best in everything!
+1. Come prepared (makes your life earlier).
+2. Have a positive attitude.
+3. Do your work.
+4. Wear deodorant (don't be that one stenchy person)..
+5. Use your time wisely (it flies by).
+6. Don't be afraid to ask questions (it's better to get help than to struggle).
+7. Use different studying habits.
+8. Take small breaks!
+9. Don't be afraid to be social.
+10. Try your best in everything!
 
 Always remember that it's okay to not be okay, especially with the pressure of school added on. Don't be afraid to reach out to someone who you need help from. And as always, have fun! (Touch grass too.) 
 
