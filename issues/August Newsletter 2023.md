@@ -58,4 +58,6 @@ Always remember that it's okay to not be okay, especially with the pressure of s
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
 
+📷 Hello! During the month of August, our mr/hr team has come up with multiple photos that we can’t wait to share with you. These snapshots capture unforgettable moments from shifts, trainings, and hangouts with friends. We hope you'll enjoy these pics as much as we did, and who knows, you might even spot yourself in one! Let's dive right in and cherish these special memories together.
 
+so hows life
