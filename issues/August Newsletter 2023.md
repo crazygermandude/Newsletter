@@ -1,4 +1,4 @@
-![August Newsletter](https://im2.ezgif.com/tmp/ezgif-2-1b90a2d080.gif)
+![August Newsletter](https://im5.ezgif.com/tmp/ezgif-5-5e3ec3aedb.gif)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 	
