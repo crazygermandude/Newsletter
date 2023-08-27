@@ -22,8 +22,34 @@ Ello everyone! Welcome to our August 2023 Newsletter aka our first published new
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂  
 
-Oh! The newsletter team is back? Our Social Assistants Emma & Emily have created a tiktok trend just for this occassion! And hey, maybe you could give it a like on our official Teethyz Dentist TikTok too. Cheers for the revival! 
+Oh! The newsletter team is back? Our Social Assistants Emma & Emily have created a tiktok just for this occassion! And hey, maybe you could give it a like on our official Teethyz Dentist TikTok too. Cheers for the revival and to many more!
 
 (im inserting the video later if i can)
+
+- **Section by EleqantEmma & e2mily** ♥
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂  
+
+![School Tips](https://cdn.discordapp.com/attachments/1094801817881280592/1141331255590395935/Back_To_School_Tips.png)  
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂  
+
+✄ ✉ Hey, Teethyz, are we ready to go back to school? Doesn't matter, we don't have a choice! Anyways, let's get in the school mood and try to get educated. Here are some basic tips you should consider to make this school year better than last! 
+
+❶ Come prepared (makes your life earlier).
+➋ Have a positive attitude.
+➌ Do your work.
+➍ Wear deodorant (don't be that one stenchy person)..
+➎ Use your time wisely (it flies by).
+➏ Don't be afraid to ask questions (it's better to get help than to struggle).
+➐ Use different studying habits.
+➑ Take small breaks!
+➒ Don't be afraid to be social.
+➓ Try your best in everything!
+
+Always remember that it's okay to not be okay, especially with the pressure of school added on. Don't be afraid to reach out to someone who you need help from. And as always, have fun! (Touch grass too.) 
+
+- **Section by dietael (former) & k6tiexishot** ☀
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂  
