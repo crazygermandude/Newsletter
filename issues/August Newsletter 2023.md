@@ -8,7 +8,8 @@ Ello everyone! Welcome to our August 2023 Newsletter aka our first published new
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 	
 
-► The much awaited release of v3 was the topic of conversation at the beginning of July. On July 1, many players rushed to the game to enjoy the final seconds of version 2 at this momentous occasion, marking a significant achievement for Teethyz. A large number of players took pictures, hung out, and waited for the game to update to version 3. When V3 finally released, many players explored the updated map with its new features, areas, and modifications.Many were in awe as they explored the new map with new systems, areas and overall changes.  One MR team member commented that she "loves how it's so summery," while another thinks it “it gives off such a positive vibe”! V3 was a significant subject that had been discussed often for months and was now finally available to Teeth'yz community members, and other players! This exciting moment was a huge milestone for Teethyz as hundreds rushed into the game to soak up the last few moments of version 2. Version 3 has allowed our community to create a lot of memories so far, and we intend to create much more as we travel together in the future. 
+► The much awaited release of v3 was the topic of conversation at the beginning of July. On July 1, many players rushed to the game to enjoy the final seconds of version 2 at this momentous occasion, marking a significant achievement for Teethyz. A large number of players took pictures, hung out, and waited for the game to update to version 3. When V3 finally released, many players explored the updated map with its new features, areas, and modifications, many people were in awe.  One MR team member commented that she "loves how it's so summery," and another said that she believes it "gives off such a positive vibe"! V3 was a significant subject that had been discussed often for months and was now finally available to Teeth'yz community members, and other players!
+Version 3 has allowed our community to create a lot of memories so far, and we intend to create much more as we travel together in the future. 
 
 - **Section by vwrsions & dietvivi** ♥
 
@@ -78,4 +79,48 @@ Thanks for reading our newsletter so far! How about you take a break from readin
 
  ![Teethyz CrossWord Sheet](https://cdn.discordapp.com/attachments/1094758945828114452/1143483630488915999/IMG_0867.jpg) 
 
-- **Section by avvIeqs & islafq** 
+- **Section by avvIeqs & islafq** ♖
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
+
+ ![MR/HR/Alliance Month](https://cdn.discordapp.com/attachments/1094801817881280592/1141102043545735229/of_the_month_.png) 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
+
+Greetings Teethyz Dentist. And welcome to the MR, HR, and Alliance of the month section. In this section you will find all the info you need about the MR, HR and Alliances of the month, let's start with our HR Of The month!
+
+__**HR of the Month...**__
+
+Our HR Of The Month for the month of july was… K6NZIEX! (Kenzie) we are all very proud of Kenzie for her hard work and dedication that it took to achieve such a highly esteemed award! As apart of winning HR Of The Month, I was able to get an exclusive interview with her.
+
+Interviewer : Furnface.
+Interviewee : K6NZIEX.
+
+Q (Furnface): What was your reaction to getting HR of the month?
+A (K6NZIEX): I was excited because I could have the best color as my role color, pink of course. 
+Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
+A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
+Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
+A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
+
+Some great words from Kenzie and some advice that I think we could all use! Moving on to our… Alliance of the month! Unlike MR and HR Of The Month, this alliance is hand picked by our Newsletter Team. This Alliance was picked because of their constant professionalism, kindness, and activeness within our community! This alliance of the month has been awarded to… Pastriez! As apart of winning Alliance Of The Month, I was able to get an exclusive interview with one of their Public Relations Member.
+
+__**Alliance of the Month...**__
+
+Interviewer : Furnface
+Interviewee : jcsette
+
+Q (Furnface) : What is it like working with Teethyz Dentist from an alliance perspective?
+A (jcsette) : In general working with Teethyz Dentist from an alliance perspective is like working with incredible people who strive to create a fun and positive atmosphere for other alliances. It's truly an amazing experience getting to work with them side by side on many things and we wouldn't change that for the world! The Communication between alliances is strong and we love being partnered with such an amazing group!
+Q (Furnface) : What is it like working with Teethyz to make these PR events that both of our staff teams love very much.
+A (jcsette) : Teethyz has always been such an amazing alliance to collaborate with. Every time we get the chance to host super fun events with them, it’s without a doubt always a good time! All of the individuals we have worked with to create collaborative events past and present have been so friendly, kind, understanding and just fun to be around overall. We honestly can’t wait for more events to happen in the future!
+
+That is all for the MR/HR/Alliance of the month section thank you for reading and have an amazing rest of your day! <3
+
+- **Section by FurnFace & RBLXWithEmily** ♦
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
+
+ ![Promotion Interviews](https://cdn.discordapp.com/attachments/1094801817881280592/1141319017978663052/Promotion__Interviews.png) 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
+
