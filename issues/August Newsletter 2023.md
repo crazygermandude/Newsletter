@@ -295,6 +295,8 @@ Thank you for reading our August Newsletter! See you next month.
 
 *Newsletter Board:* stqrlls, julvqs, mckcnzies, & witty20007 
 
+*Site Provider/Advisor:* Jyrezo
+
 *Graphics:* bearfuhl 
 
 *Section Authors:* mariesluvqs, ashlvqh, havivq, PerfectlyAnnie, prvttylaura, Furnface, Kvnqette, 1ndvie, stxrshiine01, adorlites, vwrsions, K6TIEXISHOT
