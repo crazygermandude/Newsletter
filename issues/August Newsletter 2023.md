@@ -215,3 +215,94 @@ There were many other promotions this month, but we sadly couldn’t include eve
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
 
+Just like every month, August is filled with birthdays and August most likely has some of the most birthdays here at Teethy’z. Here’s a few facts about themselves & what they love about their birthdays: 
+
+**heaurted (Sofia) - 8/1**
+Sofia loves to play volleyball which she plays for her school team! she’s originally from El Salvador and her favorite artist is SZA. She loves receiving gifts and the attention the most on her birthday!
+
+
+**eviegracea (Grace) - 8/2**
+Grace has a pet hamster named Pepper, enjoys horse riding with her friends on the weekend and her favorite TS album is 1989! She loves that her birthday is in the summer which she has no school and it is always sunny! 
+
+
+**vivmoh (Viv) - 8/5**
+Viv loves having her birthday during summer because it’s nice out and enjoys her special day with her family! 
+
+
+**mariesluvqs (Marie) - 8/7**
+Marie can say the alphabet backwards, she has  Transylvanian origin which apparently makes her a vampire…! And has been on vacation over 40 times. Her favorite part of her birthday is spending all the gift cards that she has received from her parents on which she gets to go on a huge shopping spree!
+
+
+**ma6rie (Marie) - 8/7**
+Marie is from Norway and hates everything tomato based! She loves enjoying her birthday with friends and family, and obviously getting gifts!
+
+**sqvturnss (Sienna) - 8/8**
+Sienna is a former Office Manager, plays basketball, soccer, and is a swimmer! Sienna's favorite part of their birthday is spending it with family 
+
+
+**celqstials (Chloe) - 8/8**
+Chloe plays volleyball, listens to music, and enjoys spending quality time with friends! Chloe's favorite part of their birthday is getting sweet birthday messages from friends. They really enjoy the meaningful messages. 
+
+
+**stvrzlightt (Julia) - 8/12**
+Julia loves going out, painting, and listening to music! They also enjoy spending time with family, playing Teethyz, and doing other teenage girl activities. Julia's favorite part of her birthday is going out and enjoying time with family and friends. 
+
+
+**stqrlls (Lily) - 8/13**
+Lily loves Taylor Swift and their favorite color is blue! Their favorite part of their birthday is enjoying the delicious birthday cake.
+
+
+**michallol7 (Meeka) - 8/17**
+Meeka does swim and plays the viola! Meeka's favorite part of her birthday is their birthday party! They will be turning 14. 
+
+
+**PerfectlyAnnie (Annie) - 8/19**
+Annie loves theatre and spending time with their friends and family. Annie's favorite part of their birthday is spending time with family, as well as attending a special birthday dinner! 
+
+**Furnface (Furn) - 8/21**
+Furn has played tennis their whole life, has been involved in Teethyz since 2019, and is in the roblox trading community! Some of their favorite parts of their birthday is being with family and friends, a good dinner, some cake, and getting taken out of school early! 
+
+
+ **F3vyn (Fev) - 8/21**
+Fevyn does trampolining and power-tumbling as a hobby and loved it a lot and enjoys practicing it! She enjoys painting and drawing, and loves sleeping in and cats!!! She has a cat named Smokey who is super adorable! She loves that her birthday is in August because the weather is just perfect, neither too cold nor too hot. She loves celebrating her birthday with her family and friends because they make her feel loved!
+
+
+**1uvstefany (Stefany) - 8/25**
+Stefany plays soccer, she took spanish for 3 years even if she’s not so good at it, she’s funny and she’s obsessed with chick fil a and disney! She loves that her birthday is in the summer and loves spending it with her family and friends.
+
+
+**julvqs (Jules) - 8/25**
+Jules loves dogs, Crocs, and they play the piano. Their favorite part of their birthday is receiving gifts!
+
+
+**adorlites (Lucy) - 8/28**
+Lucy has been dancing for 11 years, they love the colour pink, they love Gossip Girl, Clueless, and shopping! They are also lefthanded and love animals! Lucy enjoys eating their birthday cake, as their favorite part of their birthday!
+
+Happy (belated) birthday to all, we hope you all enjoyed your birthdays and had fun celebrating them! We’d like to also wish happy birthday to all August birthdays in the Teethyz community!
+
+
+ ![Birthdays1](https://cdn.discordapp.com/attachments/1094801817881280592/1144539151522332722/newslet.png)  ![Birthdays2](https://cdn.discordapp.com/attachments/1094801817881280592/1144541681253888160/Untitled-1.png) 
+
+
+- **Section by prvttylaura, stxrshiine01 & bearfuhl** 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
+
+Thank you for reading our August Newsletter! See you next month. 
+
+~ ♚ Credits! ♚ ~
+
+*Lead Newlsetter Board:* XxCandy2372xX 
+
+*Newsletter Board:* stqrlls, julvqs, mckcnzies, & witty20007 
+
+*Graphics:* bearfuhl 
+
+*Section Authors:* mariesluvqs, ashlvqh, havivq, PerfectlyAnnie, prvttylaura, Furnface, Kvnqette, 1ndvie, stxrshiine01, adorlites, vwrsions, K6TIEXISHOT
+
+*Photographers:* sofsrea, heart4zanii, evussence
+
+*Social Assistants:* SimplyNuggy, e2milys, EleqantEmma, JasJolly, avvIeqs, islafq
+
+*Editors:* BabyCuti32008, dietvivi, TailaBzp, dietael, assortedcupcake22, RBLXWithEmily
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
