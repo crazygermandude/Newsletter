@@ -129,80 +129,80 @@ That is all for the MR/HR/Alliance of the month section thank you for reading an
 Interviewer: mariesluvqs
 Interviewee: chvrsvuh
 
-⒈ How did you get promoted?
-    I was promoted by passing the MI trial!
-⒉ What was something you were most excited about when you got promoted?
-    I was really excited to meet more people in the MR team and train at sessions.
+1. How did you get promoted?
+    A. I was promoted by passing the MI trial!
+2. What was something you were most excited about when you got promoted?
+    A. I was really excited to meet more people in the MR team and train at sessions.
 
 *aolqnii was promoted to Supervisor on 08/07/2023*
 
 Interviewer: Annie [PerfectlyAnnie]
 Interviewee: aolqnii
 
-⒈ How did you get promoted?
-    So basically on my one month, august 7th 2023 kylee promoted me! in mr chat kylee pinged me and was like “quick question boo”and i replied “yess?” then she replied with “when’s your next shift???” at that moment i realized she was promoting me to sv and the feeling i had at that moment was surreal!
-⒉ What was something you were most excited about when you got promoted?
-    I was so ecstatic to be able to host shifts! kylee was super helpful while answering my questions. i honestly am so thankful to be promoted by her.
+1. How did you get promoted?
+    A. So basically on my one month, august 7th 2023 kylee promoted me! in mr chat kylee pinged me and was like “quick question boo”and i replied “yess?” then she replied with “when’s your next shift???” at that moment i realized she was promoting me to sv and the feeling i had at that moment was surreal!
+2. What was something you were most excited about when you got promoted?
+    A. I was so ecstatic to be able to host shifts! kylee was super helpful while answering my questions. i honestly am so thankful to be promoted by her.
 
 *rosey6283 was promoted to Assistant Manager on 08/12/2023*
 
 Interviewer: mariesluvqs
 Interviewee: rosey6283
 
-⒈ How did you get promoted?
-    Kylee needed trainers so I went to help and while taking the photo she said to congratulate me on AM for the #!!
-⒉ What was something you were excited about when you got promoted?
-    I think alliance visits!! I kept going to so many lately and I never did one while I was here previously so they’re cool.
+1. How did you get promoted?
+    A. Kylee needed trainers so I went to help and while taking the photo she said to congratulate me on AM for the #!!
+2. What was something you were excited about when you got promoted?
+    A. I think alliance visits!! I kept going to so many lately and I never did one while I was here previously so they’re cool.
 
 _vcorria was promoted to Office Manager on 08/02/2023_
 
 Interviewer: Annie [PerfectlyAnnie]
 Interviewee: Victoria [vcorria]
 
-⒈ How did you get promoted?
-    The person who promoted me, (jules) @ me on discord asking if I liked their banner! I said yes! Then jules said that they had an even better banner in mind! when I went to click on their profile to see that banner, it said congrats Victoria on om!
-⒉ What was something you were most excited about when you got promoted?
-        When I was promoted, I was so excited to host training sessions!
+1. How did you get promoted?
+    A. The person who promoted me, (jules) @ me on discord asking if I liked their banner! I said yes! Then jules said that they had an even better banner in mind! when I went to click on their profile to see that banner, it said congrats Victoria on om!
+2. What was something you were most excited about when you got promoted?
+        A. When I was promoted, I was so excited to host training sessions!
 
 _michallol7 was promoted to Dental Board on 08/02/2023_
 
 Interviewer: mariesluvqs
 Interviewee: michallol7
 
-⒈ How did you get promoted?
-    I got promoted by discord on August 2nd, 2023 with a few other amazing Office Managers.
-⒉ What was something you were most excited about when you got promoted?
-    I was really excited to make peoples days and start a promotion family besides TSA. HR was just something I always looked forward to so finally reaching it was very exciting.
+1. How did you get promoted?
+    A. I got promoted by discord on August 2nd, 2023 with a few other amazing Office Managers.
+2. What was something you were most excited about when you got promoted?
+    A. I was really excited to make peoples days and start a promotion family besides TSA. HR was just something I always looked forward to so finally reaching it was very exciting.
 
 _RBLXWithEmily was promoted to Executive Assistant on 08/09/2023_
 
 Interviewer: Annie [PerfectlyAnnie]
 Interviewee: Emily [RBLXWithEmily]
 
-⒈ How did you get promoted?
-I got promoted by Katie asking me about my favorite rank and then asked about myself being an Executive Assistant.
-⒉ What was something you were most excited about when you got promoted?
-    Something I was excited about when I got promoted was being in a different rank, especially the HR ranks. Each rank I get to do new stuff which is pretty exciting for myself.
+1. How did you get promoted?
+	A. I got promoted by Katie asking me about my favorite rank and then asked about myself being an Executive Assistant.
+2. What was something you were most excited about when you got promoted?
+	A. Something I was excited about when I got promoted was being in a different rank, especially the HR ranks. Each rank I get to do new stuff which is pretty exciting for myself.
 
 _K6NZIEX was promoted to Executive Director of Staffing on 08/13/2023_
 
 Interviewer: Annie [PerfectlyAnnie]
     Interviewee: Kenzie [K6NZIEX]
 
-⒈ How did you get promoted?
-I got promoted randomly and it was extremely exciting and surprising.
-⒉ What was something you were most excited about when you got promoted?
-    I was really just excited to get another shot at my former rank!! I had no intentions of getting this far again, but I’m glad I was given the opportunity to.
+1. How did you get promoted?
+	A. I got promoted randomly and it was extremely exciting and surprising.
+2.What was something you were most excited about when you got promoted?
+   	 A. I was really just excited to get another shot at my former rank!! I had no intentions of getting this far again, but I’m glad I was given the opportunity to.
 
 _x_Nat3e was promoted to Corporate Advisor on 08/11/2023._
 
 Interviewer: Annie [PerfectlyAnnie]
 Interviewee: Nate [x_Nat3e]
 
-⒈ How did you get promoted?
-   Me, Dany and the corporate team were in discussion of restructuring the group to make a more company feel.
-⒉ What was something you were most excited about when you got promoted?
-    I was ready to start making improvements to benefit the group.
+1. How did you get promoted?
+   A. Me, Dany and the corporate team were in discussion of restructuring the group to make a more company feel.
+2. What was something you were most excited about when you got promoted?
+   A. I was ready to start making improvements to benefit the group.
 
 
 There were many other promotions this month, but we sadly couldn’t include everyone. We would like to congratulate every single person who got promoted this month, we’re so happy for you! Happy August.
