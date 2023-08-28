@@ -10,7 +10,7 @@ Ello everyone! Welcome to our August 2023 Newsletter aka our first published new
 
 ► The much awaited release of v3 was the topic of conversation at the beginning of July. On July 1, many players rushed to the game to enjoy the final seconds of version 2 at this momentous occasion, marking a significant achievement for Teethyz. A large number of players took pictures, hung out, and waited for the game to update to version 3. When V3 finally released, many players explored the updated map with its new features, areas, and modifications.Many were in awe as they explored the new map with new systems, areas and overall changes.  One MR team member commented that she "loves how it's so summery," while another thinks it “it gives off such a positive vibe”! V3 was a significant subject that had been discussed often for months and was now finally available to Teeth'yz community members, and other players! This exciting moment was a huge milestone for Teethyz as hundreds rushed into the game to soak up the last few moments of version 2. Version 3 has allowed our community to create a lot of memories so far, and we intend to create much more as we travel together in the future. 
 
-- **Section Authors by vwrsions & dietvivi** ♥
+- **Section by vwrsions & dietvivi** ♥
 
 
 ![V2 Final Moments](https://cdn.discordapp.com/attachments/820596005497864193/1124714364881096764/image.png)        
@@ -70,4 +70,12 @@ This is the end of the August memories 2023. We hope you enjoyed them and spotte
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
 
+ ![Teethyz CrossWord](https://cdn.discordapp.com/attachments/1094801817881280592/1141099447644856520/teethyz_crossword.png) 
 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
+
+Thanks for reading our newsletter so far! How about you take a break from reading and instead do something a little bit more fun! We have a crossword puzzle attached below for you to do. For those who are not familiar with crossword puzzles,it is a puzzle in which words are filled into a pattern of numbered squares in answer to clues so that they read across and down. This theme for this puzzle is all about Teethyz! Have fun solving it. 
+
+ ![Teethyz CrossWord Sheet](https://cdn.discordapp.com/attachments/1094758945828114452/1143483630488915999/IMG_0867.jpg) 
+
+- **Section by avvIeqs & islafq** 
