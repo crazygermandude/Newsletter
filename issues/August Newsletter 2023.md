@@ -92,28 +92,29 @@ __**HR of the Month...**__
 
 Our HR Of The Month for the month of july was… K6NZIEX! (Kenzie) we are all very proud of Kenzie for her hard work and dedication that it took to achieve such a highly esteemed award! As apart of winning HR Of The Month, I was able to get an exclusive interview with her.
 
-Interviewer : Furnface.
-Interviewee : K6NZIEX.
+**Interviewer : Furnface.
+Interviewee : K6NZIEX.**
 
 - Q (Furnface): What was your reaction to getting HR of the month?
--A (K6NZIEX): I was excited because I could have the best color as my role color, pink of course. 
+A (K6NZIEX): I was excited because I could have the best color as my role color, pink of course. 
 
 - Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
-- A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
+A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
 
 - Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
-- A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
+A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
 
 Some great words from Kenzie and some advice that I think we could all use! Moving on to our… Alliance of the month! Unlike MR and HR Of The Month, this alliance is hand picked by our Newsletter Team. This Alliance was picked because of their constant professionalism, kindness, and activeness within our community! This alliance of the month has been awarded to… Pastriez! As apart of winning Alliance Of The Month, I was able to get an exclusive interview with one of their Public Relations Member.
 
 __**Alliance of the Month...**__
 
-Interviewer : Furnface
-Interviewee : jcsette
+**Interviewer : Furnface
+Interviewee : jcsette**
 
-Q (Furnface) : What is it like working with Teethyz Dentist from an alliance perspective?
+- Q (Furnface) : What is it like working with Teethyz Dentist from an alliance perspective?
 A (jcsette) : In general working with Teethyz Dentist from an alliance perspective is like working with incredible people who strive to create a fun and positive atmosphere for other alliances. It's truly an amazing experience getting to work with them side by side on many things and we wouldn't change that for the world! The Communication between alliances is strong and we love being partnered with such an amazing group!
-Q (Furnface) : What is it like working with Teethyz to make these PR events that both of our staff teams love very much.
+
+- Q (Furnface) : What is it like working with Teethyz to make these PR events that both of our staff teams love very much.
 A (jcsette) : Teethyz has always been such an amazing alliance to collaborate with. Every time we get the chance to host super fun events with them, it’s without a doubt always a good time! All of the individuals we have worked with to create collaborative events past and present have been so friendly, kind, understanding and just fun to be around overall. We honestly can’t wait for more events to happen in the future!
 
 That is all for the MR/HR/Alliance of the month section thank you for reading and have an amazing rest of your day! <3
@@ -128,8 +129,8 @@ That is all for the MR/HR/Alliance of the month section thank you for reading an
 
 *chvrsvuh was promoted to Staff Assistant on 08/11/2023*
 
-Interviewer: mariesluvqs
-Interviewee: chvrsvuh
+**Interviewer: mariesluvqs
+Interviewee: chvrsvuh**
 
 1. How did you get promoted?
     A. I was promoted by passing the MI trial!
@@ -138,8 +139,8 @@ Interviewee: chvrsvuh
 
 *aolqnii was promoted to Supervisor on 08/07/2023*
 
-Interviewer: Annie [PerfectlyAnnie]
-Interviewee: aolqnii
+**Interviewer: Annie [PerfectlyAnnie]
+Interviewee: aolqnii**
 
 1. How did you get promoted?
     A. So basically on my one month, august 7th 2023 kylee promoted me! in mr chat kylee pinged me and was like “quick question boo”and i replied “yess?” then she replied with “when’s your next shift???” at that moment i realized she was promoting me to sv and the feeling i had at that moment was surreal!
@@ -148,8 +149,8 @@ Interviewee: aolqnii
 
 *rosey6283 was promoted to Assistant Manager on 08/12/2023*
 
-Interviewer: mariesluvqs
-Interviewee: rosey6283
+**Interviewer: mariesluvqs
+Interviewee: rosey6283**
 
 1. How did you get promoted?
     A. Kylee needed trainers so I went to help and while taking the photo she said to congratulate me on AM for the #!!
@@ -158,8 +159,8 @@ Interviewee: rosey6283
 
 _vcorria was promoted to Office Manager on 08/02/2023_
 
-Interviewer: Annie [PerfectlyAnnie]
-Interviewee: Victoria [vcorria]
+**Interviewer: Annie [PerfectlyAnnie]
+Interviewee: Victoria [vcorria]**
 
 1. How did you get promoted?
     A. The person who promoted me, (jules) @ me on discord asking if I liked their banner! I said yes! Then jules said that they had an even better banner in mind! when I went to click on their profile to see that banner, it said congrats Victoria on om!
@@ -168,8 +169,8 @@ Interviewee: Victoria [vcorria]
 
 _michallol7 was promoted to Dental Board on 08/02/2023_
 
-Interviewer: mariesluvqs
-Interviewee: michallol7
+**Interviewer: mariesluvqs
+Interviewee: michallol7**
 
 1. How did you get promoted?
     A. I got promoted by discord on August 2nd, 2023 with a few other amazing Office Managers.
@@ -178,18 +179,18 @@ Interviewee: michallol7
 
 _RBLXWithEmily was promoted to Executive Assistant on 08/09/2023_
 
-Interviewer: Annie [PerfectlyAnnie]
-Interviewee: Emily [RBLXWithEmily]
+**Interviewer: Annie [PerfectlyAnnie]
+Interviewee: Emily [RBLXWithEmily]**
 
 1. How did you get promoted?
 	A. I got promoted by Katie asking me about my favorite rank and then asked about myself being an Executive Assistant.
 2. What was something you were most excited about when you got promoted?
-	A. Something I was excited about when I got promoted was being in a different rank, especially the HR ranks. Each rank I get to do new stuff which is pretty exciting for myself.
+	A. Something I was excited about when I got promoted was being in a different rank, especially the HR ranks. Each rank I get to do new stuff which is pretty exciting for myself. And Chrissy is so awesome and cool, I wanna be like her one day! 
 
 _K6NZIEX was promoted to Executive Director of Staffing on 08/13/2023_
 
-Interviewer: Annie [PerfectlyAnnie]
-    Interviewee: Kenzie [K6NZIEX]
+**Interviewer: Annie [PerfectlyAnnie]
+    Interviewee: Kenzie [K6NZIEX]**
 
 1. How did you get promoted?
 	A. I got promoted randomly and it was extremely exciting and surprising.
@@ -198,8 +199,8 @@ Interviewer: Annie [PerfectlyAnnie]
 
 _x_Nat3e was promoted to Corporate Advisor on 08/11/2023._
 
-Interviewer: Annie [PerfectlyAnnie]
-Interviewee: Nate [x_Nat3e]
+**Interviewer: Annie [PerfectlyAnnie]
+Interviewee: Nate [x_Nat3e]**
 
 1. How did you get promoted?
    A. Me, Dany and the corporate team were in discussion of restructuring the group to make a more company feel.
