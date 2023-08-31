@@ -173,7 +173,7 @@ _vcorria was promoted to Office Manager on 08/02/2023_
 Interviewee: Victoria [vcorria]**
 
 1. How did you get promoted?
-    A. The person who promoted me, (jules) @ me on discord asking if I liked their banner! I said yes! Then jules said that they had an even better banner in mind! when I went to click on their profile to see that banner, it said congrats Victoria on om!
+A. The person who promoted me, (jules) @ me on discord asking if I liked their banner! I said yes! Then jules said that they had an even better banner in mind! when I went to click on their profile to see that banner, it said congrats Victoria on om!
 2. What was something you were most excited about when you got promoted?
         A. When I was promoted, I was so excited to host training sessions!
 
