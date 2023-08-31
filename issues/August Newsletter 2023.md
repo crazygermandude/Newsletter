@@ -95,15 +95,19 @@ Our HR Of The Month for the month of july was… K6NZIEX! (Kenzie) we are all ve
 **Interviewer : Furnface.
 Interviewee : K6NZIEX.**
 
-- Q (Furnface): What was your reaction to getting HR of the month?
+Q (Furnface): What was your reaction to getting HR of the month?
 
 
 A (K6NZIEX): I was excited because I could have the best color as my role color, pink of course. 
 
-- Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
+Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
+
+
 A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
 
-- Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
+Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
+
+
 A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
 
 Some great words from Kenzie and some advice that I think we could all use! Moving on to our… Alliance of the month! Unlike MR and HR Of The Month, this alliance is hand picked by our Newsletter Team. This Alliance was picked because of their constant professionalism, kindness, and activeness within our community! This alliance of the month has been awarded to… Pastriez! As apart of winning Alliance Of The Month, I was able to get an exclusive interview with one of their Public Relations Member.
@@ -113,10 +117,14 @@ __**Alliance of the Month...**__
 **Interviewer : Furnface
 Interviewee : jcsette**
 
-- Q (Furnface) : What is it like working with Teethyz Dentist from an alliance perspective?
+Q (Furnface) : What is it like working with Teethyz Dentist from an alliance perspective?
+
+
 A (jcsette) : In general working with Teethyz Dentist from an alliance perspective is like working with incredible people who strive to create a fun and positive atmosphere for other alliances. It's truly an amazing experience getting to work with them side by side on many things and we wouldn't change that for the world! The Communication between alliances is strong and we love being partnered with such an amazing group!
 
-- Q (Furnface) : What is it like working with Teethyz to make these PR events that both of our staff teams love very much.
+Q (Furnface) : What is it like working with Teethyz to make these PR events that both of our staff teams love very much.
+
+
 A (jcsette) : Teethyz has always been such an amazing alliance to collaborate with. Every time we get the chance to host super fun events with them, it’s without a doubt always a good time! All of the individuals we have worked with to create collaborative events past and present have been so friendly, kind, understanding and just fun to be around overall. We honestly can’t wait for more events to happen in the future!
 
 That is all for the MR/HR/Alliance of the month section thank you for reading and have an amazing rest of your day! <3
