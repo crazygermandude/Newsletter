@@ -137,7 +137,7 @@ That is all for the MR/HR/Alliance of the month section thank you for reading an
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
 
-┕━»•» 🌺 «•«━━━━━┙
+┍━━━━━»•» 🌺 «•«━┑
 
 *chvrsvuh was promoted to Staff Assistant on 08/11/2023*
 
@@ -158,12 +158,13 @@ A. I was promoted by passing the MI trial!
 
 A. I was really excited to meet more people in the MR team and train at sessions.
 
-_ ׂׂૢ་༘࿐
+┍━━━━━»•» 🌺 «•«━┑
 
 *aolqnii was promoted to Supervisor on 08/07/2023*
 
-_ ׂׂૢ་༘࿐
+┕━»•» 🌺 «•«━━━━━┙
 
+---
 
 **Interviewer: Annie [PerfectlyAnnie]
 Interviewee: aolqnii**
@@ -178,12 +179,13 @@ A. So basically on my one month, august 7th 2023 kylee promoted me! in mr chat k
 
 A. I was so ecstatic to be able to host shifts! kylee was super helpful while answering my questions. i honestly am so thankful to be promoted by her.
 
-_ ׂׂૢ་༘࿐
+┍━━━━━»•» 🌺 «•«━┑
 
 *rosey6283 was promoted to Assistant Manager on 08/12/2023*
 
-_ ׂׂૢ་༘࿐
+┕━»•» 🌺 «•«━━━━━┙
 
+---
 
 **Interviewer: mariesluvqs
 Interviewee: rosey6283**
@@ -198,11 +200,13 @@ A. Kylee needed trainers so I went to help and while taking the photo she said t
 
 A. I think alliance visits!! I kept going to so many lately and I never did one while I was here previously so they’re cool.
 
-_ ׂׂૢ་༘࿐
+┍━━━━━»•» 🌺 «•«━┑
 
 _vcorria was promoted to Office Manager on 08/02/2023_
 
-_ ׂׂૢ་༘࿐
+┕━»•» 🌺 «•«━━━━━┙
+
+---
 
 **Interviewer: Annie [PerfectlyAnnie]
 Interviewee: Victoria [vcorria]**
@@ -218,11 +222,13 @@ A. The person who promoted me, (jules) @ me on discord asking if I liked their b
 
 A. When I was promoted, I was so excited to host training sessions!
 
-_ ׂׂૢ་༘࿐
+┍━━━━━»•» 🌺 «•«━┑
 
 _michallol7 was promoted to Dental Board on 08/02/2023_
 
-_ ׂׂૢ་༘࿐
+┕━»•» 🌺 «•«━━━━━┙
+
+---
 
 **Interviewer: mariesluvqs
 Interviewee: michallol7**
@@ -237,11 +243,13 @@ A. I got promoted by discord on August 2nd, 2023 with a few other amazing Office
 
 A. I was really excited to make peoples days and start a promotion family besides TSA. HR was just something I always looked forward to so finally reaching it was very exciting.
 
-_ ׂׂૢ་༘࿐
+┍━━━━━»•» 🌺 «•«━┑
 
 _RBLXWithEmily was promoted to Executive Assistant on 08/09/2023_
 
-_ ׂׂૢ་༘࿐
+┕━»•» 🌺 «•«━━━━━┙
+
+---
 
 **Interviewer: Annie [PerfectlyAnnie]
 Interviewee: Emily [RBLXWithEmily]**
@@ -257,11 +265,13 @@ A. I got promoted by Katie asking me about my favorite rank and then asked about
 A. Something I was excited about when I got promoted was being in a different rank, especially the HR ranks. Each rank I get to do new stuff which is pretty exciting for myself. And Chrissy is so cool, I wanna be like her one day!
 
 
-_ ׂׂૢ་༘࿐
+┍━━━━━»•» 🌺 «•«━┑
 
 _K6NZIEX was promoted to Executive Director of Staffing on 08/13/2023_
 
-_ ׂׂૢ་༘࿐
+┕━»•» 🌺 «•«━━━━━┙
+
+---
 
 **Interviewer: Annie [PerfectlyAnnie]
     Interviewee: Kenzie [K6NZIEX]**
@@ -276,11 +286,13 @@ A. I got promoted randomly and it was extremely exciting and surprising.
 
 A. I was really just excited to get another shot at my former rank!! I had no intentions of getting this far again, but I’m glad I was given the opportunity to.
 
-_ ׂׂૢ་༘࿐
+┍━━━━━»•» 🌺 «•«━┑
 
 _x_Nat3e was promoted to Corporate Advisor on 08/11/2023._
 
-_ ׂׂૢ་༘࿐
+┕━»•» 🌺 «•«━━━━━┙
+
+---
 
 **Interviewer: Annie [PerfectlyAnnie]
 Interviewee: Nate [x_Nat3e]**
