@@ -412,7 +412,7 @@ Thank you for reading our August Newsletter! See you next month.
 
 *Lead Newlsetter Board:* XxCandy2372xX 
 
-*Newsletter Board:* stqrlls, julvqs, mckcnzies, X_Nat3 something something yeah & witty20007 
+*Newsletter Board:* stqrlls, julvqs, mckcnzies, X_Nat3e & witty20007 
 
 *Site Provider/Advisor:* Jyrezo
 
