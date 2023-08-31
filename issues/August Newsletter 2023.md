@@ -99,7 +99,7 @@ Interviewee : K6NZIEX.**
 A (K6NZIEX): I was excited because I could have the best color as my role color, pink of course. 
 
 - Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
-A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
+	A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
 
 - Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
 A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
