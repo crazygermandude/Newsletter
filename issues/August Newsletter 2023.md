@@ -23,7 +23,7 @@ Version 3 has allowed our community to create a lot of memories so far, and we i
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂  
 
-Oh! The newsletter team is back? Our Social Assistants Emma & Emily have created a tiktok just for this occassion! And hey, maybe you could give it a like on our official Teethyz Dentist TikTok too. Cheers for the revival and to many more!
+► Oh! The newsletter team is back? Our Social Assistants Emma & Emily have created a tiktok just for this occassion! And hey, maybe you could give it a like on our official Teethyz Dentist TikTok too. Cheers for the revival and to many more!
 
 (im inserting the video later if i can)
 
@@ -59,7 +59,7 @@ Always remember that it's okay to not be okay, especially with the pressure of s
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
 
-📷 Hello! During the month of August, our mr/hr team has come up with multiple photos that we can’t wait to share with you. These snapshots capture unforgettable moments from shifts, trainings, and hangouts with friends. We hope you'll enjoy these pics as much as we did, and who knows, you might even spot yourself in one! Let's dive right in and cherish these special memories together.
+📷 ► Hello! During the month of August, our mr/hr team has come up with multiple photos that we can’t wait to share with you. These snapshots capture unforgettable moments from shifts, trainings, and hangouts with friends. We hope you'll enjoy these pics as much as we did, and who knows, you might even spot yourself in one! Let's dive right in and cherish these special memories together.
 
 ![Memories1](https://media.discordapp.net/attachments/430922830407008257/1145519225570599022/August_Newsletter_Memories_Board_1.png?width=1566&height=1060) ![Memories2](https://media.discordapp.net/attachments/430922830407008257/1145519226195562677/August_Newsletter_Board_2.png?width=1566&height=1060) 
 
@@ -75,7 +75,7 @@ This is the end of the August memories 2023. We hope you enjoyed them and spotte
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
 
-Thanks for reading our newsletter so far! How about you take a break from reading and instead do something a little bit more fun! We have a crossword puzzle attached below for you to do. For those who are not familiar with crossword puzzles,it is a puzzle in which words are filled into a pattern of numbered squares in answer to clues so that they read across and down. This theme for this puzzle is all about Teethyz! Have fun solving it. 
+► Thanks for reading our newsletter so far! How about you take a break from reading and instead do something a little bit more fun! We have a crossword puzzle attached below for you to do. For those who are not familiar with crossword puzzles,it is a puzzle in which words are filled into a pattern of numbered squares in answer to clues so that they read across and down. This theme for this puzzle is all about Teethyz! Have fun solving it. 
 
  ![Teethyz CrossWord Sheet](https://cdn.discordapp.com/attachments/1094758945828114452/1143483630488915999/IMG_0867.jpg) 
 
@@ -86,7 +86,7 @@ Thanks for reading our newsletter so far! How about you take a break from readin
  ![MR/HR/Alliance Month](https://cdn.discordapp.com/attachments/1094801817881280592/1141102043545735229/of_the_month_.png) 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
 
-Greetings Teethyz Dentist. And welcome to the MR, HR, and Alliance of the month section. In this section you will find all the info you need about the MR, HR and Alliances of the month, let's start with our HR Of The month!
+► Greetings Teethyz Dentist. And welcome to the MR, HR, and Alliance of the month section. In this section you will find all the info you need about the MR, HR and Alliances of the month, let's start with our HR Of The month!
 
 __**HR of the Month...**__
 
@@ -95,12 +95,14 @@ Our HR Of The Month for the month of july was… K6NZIEX! (Kenzie) we are all ve
 Interviewer : Furnface.
 Interviewee : K6NZIEX.
 
-Q (Furnface): What was your reaction to getting HR of the month?
-A (K6NZIEX): I was excited because I could have the best color as my role color, pink of course. 
-Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
-A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
-Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
-A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
+- Q (Furnface): What was your reaction to getting HR of the month?
+-A (K6NZIEX): I was excited because I could have the best color as my role color, pink of course. 
+
+- Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
+- A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
+
+- Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
+- A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
 
 Some great words from Kenzie and some advice that I think we could all use! Moving on to our… Alliance of the month! Unlike MR and HR Of The Month, this alliance is hand picked by our Newsletter Team. This Alliance was picked because of their constant professionalism, kindness, and activeness within our community! This alliance of the month has been awarded to… Pastriez! As apart of winning Alliance Of The Month, I was able to get an exclusive interview with one of their Public Relations Member.
 
