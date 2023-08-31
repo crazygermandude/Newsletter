@@ -88,6 +88,8 @@ This is the end of the August memories 2023. We hope you enjoyed them and spotte
 
 ► Greetings Teethyz Dentist. And welcome to the MR, HR, and Alliance of the month section. In this section you will find all the info you need about the MR, HR and Alliances of the month, let's start with our HR Of The month!
 
+---
+
 __**HR of the Month...**__
 
 Our HR Of The Month for the month of july was… K6NZIEX! (Kenzie) we are all very proud of Kenzie for her hard work and dedication that it took to achieve such a highly esteemed award! As apart of winning HR Of The Month, I was able to get an exclusive interview with her.
@@ -110,7 +112,11 @@ A (K6NZIEX): I would tell them to always remember it’s a game and to not push 
 
 A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
 
+--- 
+
 Some great words from Kenzie and some advice that I think we could all use! Moving on to our… Alliance of the month! Unlike MR and HR Of The Month, this alliance is hand picked by our Newsletter Team. This Alliance was picked because of their constant professionalism, kindness, and activeness within our community! This alliance of the month has been awarded to… Pastriez! As apart of winning Alliance Of The Month, I was able to get an exclusive interview with one of their Public Relations Member.
+
+--- 
 
 __**Alliance of the Month...**__
 
@@ -126,6 +132,8 @@ A (jcsette) : In general working with Teethyz Dentist from an alliance perspecti
 
 
 A (jcsette) : Teethyz has always been such an amazing alliance to collaborate with. Every time we get the chance to host super fun events with them, it’s without a doubt always a good time! All of the individuals we have worked with to create collaborative events past and present have been so friendly, kind, understanding and just fun to be around overall. We honestly can’t wait for more events to happen in the future!
+
+---
 
 That is all for the MR/HR/Alliance of the month section thank you for reading and have an amazing rest of your day! <3
 
@@ -311,6 +319,7 @@ A. Me, Dany and the corporate team were in discussion of restructuring the group
 
 A. I was ready to start making improvements to benefit the group.
 
+---
 
 There were many other promotions this month, but we sadly couldn’t include everyone. We would like to congratulate every single person who got promoted this month, we’re so happy for you! Happy August.
 
