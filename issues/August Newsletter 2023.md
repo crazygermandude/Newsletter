@@ -95,17 +95,17 @@ Our HR Of The Month for the month of july was… K6NZIEX! (Kenzie) we are all ve
 **Interviewer : Furnface.
 Interviewee : K6NZIEX.**
 
-Q (Furnface): What was your reaction to getting HR of the month?
+- Q (Furnface): What was your reaction to getting HR of the month?
 
 
 A (K6NZIEX): I was excited because I could have the best color as my role color, pink of course. 
 
-Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
+- Q (Furnface): What’s some advice you would give to LR’s trying to be an HR one day?
 
 
 A (K6NZIEX): I would tell them to always remember it’s a game and to not push themselves too hard. Quality activity is better than quantity. They should also remember we all started out as LRs, and not to idolize us too much! Last but not least, stay strong and beautiful.
 
-Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
+- Q (Furnface): What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
 
 
 A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will be chosen, you just need to stand out in the correct ways. My main advice would be to just go on as normal, and accept it as an addition to your hard work if it comes, don’t necessarily make it a must win situation.
@@ -117,12 +117,12 @@ __**Alliance of the Month...**__
 **Interviewer : Furnface
 Interviewee : jcsette**
 
-Q (Furnface) : What is it like working with Teethyz Dentist from an alliance perspective?
+- Q (Furnface) : What is it like working with Teethyz Dentist from an alliance perspective?
 
 
 A (jcsette) : In general working with Teethyz Dentist from an alliance perspective is like working with incredible people who strive to create a fun and positive atmosphere for other alliances. It's truly an amazing experience getting to work with them side by side on many things and we wouldn't change that for the world! The Communication between alliances is strong and we love being partnered with such an amazing group!
 
-Q (Furnface) : What is it like working with Teethyz to make these PR events that both of our staff teams love very much.
+- Q (Furnface) : What is it like working with Teethyz to make these PR events that both of our staff teams love very much.
 
 
 A (jcsette) : Teethyz has always been such an amazing alliance to collaborate with. Every time we get the chance to host super fun events with them, it’s without a doubt always a good time! All of the individuals we have worked with to create collaborative events past and present have been so friendly, kind, understanding and just fun to be around overall. We honestly can’t wait for more events to happen in the future!
@@ -143,9 +143,14 @@ That is all for the MR/HR/Alliance of the month section thank you for reading an
 Interviewee: chvrsvuh**
 
 1. How did you get promoted?
-    A. I was promoted by passing the MI trial!
+
+
+A. I was promoted by passing the MI trial!
+
 2. What was something you were most excited about when you got promoted?
-    A. I was really excited to meet more people in the MR team and train at sessions.
+
+
+A. I was really excited to meet more people in the MR team and train at sessions.
 
 *aolqnii was promoted to Supervisor on 08/07/2023*
 
@@ -153,9 +158,14 @@ Interviewee: chvrsvuh**
 Interviewee: aolqnii**
 
 1. How did you get promoted?
-    A. So basically on my one month, august 7th 2023 kylee promoted me! in mr chat kylee pinged me and was like “quick question boo”and i replied “yess?” then she replied with “when’s your next shift???” at that moment i realized she was promoting me to sv and the feeling i had at that moment was surreal!
+
+
+A. So basically on my one month, august 7th 2023 kylee promoted me! in mr chat kylee pinged me and was like “quick question boo”and i replied “yess?” then she replied with “when’s your next shift???” at that moment i realized she was promoting me to sv and the feeling i had at that moment was surreal!
+
 2. What was something you were most excited about when you got promoted?
-    A. I was so ecstatic to be able to host shifts! kylee was super helpful while answering my questions. i honestly am so thankful to be promoted by her.
+
+
+A. I was so ecstatic to be able to host shifts! kylee was super helpful while answering my questions. i honestly am so thankful to be promoted by her.
 
 *rosey6283 was promoted to Assistant Manager on 08/12/2023*
 
@@ -163,9 +173,14 @@ Interviewee: aolqnii**
 Interviewee: rosey6283**
 
 1. How did you get promoted?
-    A. Kylee needed trainers so I went to help and while taking the photo she said to congratulate me on AM for the #!!
+
+
+A. Kylee needed trainers so I went to help and while taking the photo she said to congratulate me on AM for the #!!
+
 2. What was something you were excited about when you got promoted?
-    A. I think alliance visits!! I kept going to so many lately and I never did one while I was here previously so they’re cool.
+
+
+A. I think alliance visits!! I kept going to so many lately and I never did one while I was here previously so they’re cool.
 
 _vcorria was promoted to Office Manager on 08/02/2023_
 
@@ -173,9 +188,15 @@ _vcorria was promoted to Office Manager on 08/02/2023_
 Interviewee: Victoria [vcorria]**
 
 1. How did you get promoted?
+
+
 A. The person who promoted me, (jules) @ me on discord asking if I liked their banner! I said yes! Then jules said that they had an even better banner in mind! when I went to click on their profile to see that banner, it said congrats Victoria on om!
+
+
 2. What was something you were most excited about when you got promoted?
-        A. When I was promoted, I was so excited to host training sessions!
+
+
+A. When I was promoted, I was so excited to host training sessions!
 
 _michallol7 was promoted to Dental Board on 08/02/2023_
 
@@ -183,9 +204,14 @@ _michallol7 was promoted to Dental Board on 08/02/2023_
 Interviewee: michallol7**
 
 1. How did you get promoted?
-    A. I got promoted by discord on August 2nd, 2023 with a few other amazing Office Managers.
+
+
+A. I got promoted by discord on August 2nd, 2023 with a few other amazing Office Managers.
+
 2. What was something you were most excited about when you got promoted?
-    A. I was really excited to make peoples days and start a promotion family besides TSA. HR was just something I always looked forward to so finally reaching it was very exciting.
+
+
+A. I was really excited to make peoples days and start a promotion family besides TSA. HR was just something I always looked forward to so finally reaching it was very exciting.
 
 _RBLXWithEmily was promoted to Executive Assistant on 08/09/2023_
 
@@ -193,9 +219,14 @@ _RBLXWithEmily was promoted to Executive Assistant on 08/09/2023_
 Interviewee: Emily [RBLXWithEmily]**
 
 1. How did you get promoted?
-	A. I got promoted by Katie asking me about my favorite rank and then asked about myself being an Executive Assistant.
+
+
+A. I got promoted by Katie asking me about my favorite rank and then asked about myself being an Executive Assistant.
+
 2. What was something you were most excited about when you got promoted?
-	A. Something I was excited about when I got promoted was being in a different rank, especially the HR ranks. Each rank I get to do new stuff which is pretty exciting for myself. And Chrissy is so awesome and cool, I wanna be like her one day! 
+
+
+A. Something I was excited about when I got promoted was being in a different rank, especially the HR ranks. Each rank I get to do new stuff which is pretty exciting for myself. And Chrissy is so awesome and cool, I wanna be like her one day! 
 
 _K6NZIEX was promoted to Executive Director of Staffing on 08/13/2023_
 
@@ -203,9 +234,14 @@ _K6NZIEX was promoted to Executive Director of Staffing on 08/13/2023_
     Interviewee: Kenzie [K6NZIEX]**
 
 1. How did you get promoted?
-	A. I got promoted randomly and it was extremely exciting and surprising.
+
+
+A. I got promoted randomly and it was extremely exciting and surprising.
+
 2.What was something you were most excited about when you got promoted?
-   	 A. I was really just excited to get another shot at my former rank!! I had no intentions of getting this far again, but I’m glad I was given the opportunity to.
+
+
+A. I was really just excited to get another shot at my former rank!! I had no intentions of getting this far again, but I’m glad I was given the opportunity to.
 
 _x_Nat3e was promoted to Corporate Advisor on 08/11/2023._
 
@@ -213,9 +249,14 @@ _x_Nat3e was promoted to Corporate Advisor on 08/11/2023._
 Interviewee: Nate [x_Nat3e]**
 
 1. How did you get promoted?
-   A. Me, Dany and the corporate team were in discussion of restructuring the group to make a more company feel.
+
+
+A. Me, Dany and the corporate team were in discussion of restructuring the group to make a more company feel.
+
 2. What was something you were most excited about when you got promoted?
-   A. I was ready to start making improvements to benefit the group.
+
+
+A. I was ready to start making improvements to benefit the group.
 
 
 There were many other promotions this month, but we sadly couldn’t include everyone. We would like to congratulate every single person who got promoted this month, we’re so happy for you! Happy August.
