@@ -25,7 +25,7 @@ Version 3 has allowed our community to create a lot of memories so far, and we i
 
 ► Oh! The newsletter team is back? Our Social Assistants Emma & Emily have created a tiktok just for this occassion! And hey, maybe you could give it a like and follow on our official Teethyz Dentist TikTok too. Cheers for the revival and to many more!
 
-	[August 2023 TikTok!](https://www.tiktok.com/@teethyz.official/video/7273891271708593451?is_from_webapp=1&sender_device=pc&web_id=7131847119438448170)
+[August 2023 TikTok!](https://www.tiktok.com/@teethyz.official/video/7273891271708593451?is_from_webapp=1&sender_device=pc&web_id=7131847119438448170)
 
 - **Section by EleqantEmma & e2mily** ♥
 
