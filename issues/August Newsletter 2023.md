@@ -410,7 +410,7 @@ Thank you for reading our August Newsletter! See you next month.
 
 ~ ♚ Credits! ♚ ~
 
-*Lead Newlsetter Board:* XxCandy2372xX 
+*Lead Newsletter Board:* XxCandy2372xX 
 
 *Newsletter Board:* stqrlls, julvqs, mckcnzies, X_Nat3e & witty20007 
 
