@@ -92,7 +92,7 @@ This is the end of the August memories 2023. We hope you enjoyed them and spotte
 
 __**HR of the Month...**__
 
-Our HR Of The Month for the month of july was… K6NZIEX! (Kenzie) we are all very proud of Kenzie for her hard work and dedication that it took to achieve such a highly esteemed award! As apart of winning HR Of The Month, I was able to get an exclusive interview with her.
+► Our HR Of The Month for the month of july was… K6NZIEX! (Kenzie) we are all very proud of Kenzie for her hard work and dedication that it took to achieve such a highly esteemed award! As apart of winning HR Of The Month, I was able to get an exclusive interview with her.
 
 **Interviewer : Furnface.
 Interviewee : K6NZIEX.**
@@ -114,7 +114,7 @@ A (K6NZIEX): I don’t believe there is a certain thing that guarantees you will
 
 --- 
 
-Some great words from Kenzie and some advice that I think we could all use! Moving on to our… Alliance of the month! Unlike MR and HR Of The Month, this alliance is hand picked by our Newsletter Team. This Alliance was picked because of their constant professionalism, kindness, and activeness within our community! This alliance of the month has been awarded to… Pastriez! As apart of winning Alliance Of The Month, I was able to get an exclusive interview with one of their Public Relations Member.
+► Some great words from Kenzie and some advice that I think we could all use! Moving on to our… Alliance of the month! Unlike MR and HR Of The Month, this alliance is hand picked by our Newsletter Team. This Alliance was picked because of their constant professionalism, kindness, and activeness within our community! This alliance of the month has been awarded to… Pastriez! As apart of winning Alliance Of The Month, I was able to get an exclusive interview with one of their Public Relations Member.
 
 --- 
 
