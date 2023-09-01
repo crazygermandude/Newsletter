@@ -180,7 +180,7 @@ Interviewee: aolqnii**
 1. How did you get promoted?
 
 
-A. So basically on my one month, august 7th 2023 kylee promoted me! in mr chat kylee pinged me and was like “quick question boo”and i replied “yess?” then she replied with “when’s your next shift???” at that moment i realized she was promoting me to sv and the feeling i had at that moment was surreal!
+A. So basically on my one month, august 7th 2023 kylee promoted me! Kylee pinged me and was like “quick question boo”and i replied “yess?” then she replied with “when’s your next shift???” at that moment i realized she was promoting me to sv and the feeling i had at that moment was surreal!
 
 2. What was something you were most excited about when you got promoted?
 
