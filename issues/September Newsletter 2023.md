@@ -1,6 +1,9 @@
 ![Teethyz Fall Newsletter](https://cdn.discordapp.com/attachments/1094801817881280592/1154527111202226226/teethyznewsletter.png)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Ello everyone! We are back again with our September newsletter. We got ourselves a lot of coolio sections so make sure to give it a lil read. :D 
+~ Newsletter Team
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 ![Hispanic Herritage Month](https://cdn.discordapp.com/attachments/1094801817881280592/1154528033089261608/hispanic_heritage_month.png)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
