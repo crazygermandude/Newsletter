@@ -1,7 +1,7 @@
-[Teethyz Fall Newsletter](https://cdn.discordapp.com/attachments/1094801817881280592/1154527111202226226/teethyznewsletter.png)
+![Teethyz Fall Newsletter](https://cdn.discordapp.com/attachments/1094801817881280592/1154527111202226226/teethyznewsletter.png)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-[Hispanic Herritage Month](https://cdn.discordapp.com/attachments/1094801817881280592/1154528033089261608/hispanic_heritage_month.png)
+![Hispanic Herritage Month](https://cdn.discordapp.com/attachments/1094801817881280592/1154528033089261608/hispanic_heritage_month.png)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
