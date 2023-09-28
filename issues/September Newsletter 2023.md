@@ -52,3 +52,22 @@ My favorite fall food is a hard question because they are all so delicious! My f
 Thank you for reading and have a lovely September and a wonderful fall! We hope you enjoyed learning a little more about some of our MR+ members. 
 
 - **Section by PerfectlyAnnie and mariesluvqs**
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Word Unscramble](https://media.discordapp.net/attachments/1094801817881280592/1154656050461560882/Word_Unscramble.png?width=2000&height=400)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Greetings Teethyz community! We thought it would fun to take a quick break from reading, and complete a small activity! We've put together a fun back to school word unscramble. The unscramble below consists of 9 different words that have been scrambled. Your job is to rearrange all the letters in each word, to find the original word! Have fun everyone! :) 
+
+![Unscramble Sheet](https://cdn.discordapp.com/attachments/1094801817881280592/1156980636628824064/Word_Unscramble.png?ex=6516f1af&is=6515a02f&hm=e66d27cf68a9b5d3d33f432526e524bd4a6402daa89fb341e795aa269343c4bc&)
+
+- **Section by havivq and JasJolly**
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Short Stories At the dentist](https://cdn.discordapp.com/attachments/1094801817881280592/1154655420770684958/small.png)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
