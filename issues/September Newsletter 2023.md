@@ -95,4 +95,16 @@ Throughout this month, some significant memories have been made in the dentist a
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Greeting once again Teethyz, and welcome back to our Of The Month section! In this section you will find out about our Alliance of the month, our MR of the month, and our HR of the month! Let's start with our MR of the month!
 
+Our MR Of The Month was… **eriqva (Erica)**!  We are all very proud of her for winning such a highly esteemed award! I was able to get an exclusive interview with Erica as a part of this, so read and enjoy!
+
+Interviewer: Furnface
+Interviewee: eriqva (Erica)
+
+1.  Q(Furnface) What was your reaction to getting MR of the month?
+     A(Erica) I woke up to being pinged a lot, I felt really proud of myself. I remember being really excited about my custom pink color.
+2. Q(Furnface) What’s some advice you would give to LR’s trying to be an MR one day.
+    A(Erica) If they are aiming to reach MR, I would tell them to focus on activity, communication, multiple skills that would be valuable for the MR team. Continuously learn and improve, stay determined and don’t give up if you fail at first. Lastly I would remind them that it is also just a game and you should always put yourself over it, but if it’s something you really do care about, go for it!
+3. Q(Furnface) What’s some advice you would give to MR’s trying to one day get MR of the month.
+    A(Erica) Set clear goals, define what you want to achieve and create a plan to achieve those goals, excel in your current rank, go above and beyond in your responsibilities. Deliver exceptional results, and constantly exceed expectations. Stay motivated, and maintain a growth mindset. I want to remind you that you don’t really need certain things to be chosen, I tried my best to be communicative and active.
