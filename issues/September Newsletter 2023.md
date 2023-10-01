@@ -166,3 +166,22 @@ Well, that was a long list! Happy belated birthdays to everyone, we really hope 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Thank you for reading our September Newsletter! See you next month.
+
+~ ♚ Credits! ♚ ~
+
+Lead Newsletter Board: XxCandy2372xX
+
+Newsletter Board: stqrlls, julvqs, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: bearfuhl
+
+Section Authors: 
+
+Photographers: 
+
+Social Assistants: 
+
+Editors: 
