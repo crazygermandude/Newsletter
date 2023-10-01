@@ -136,4 +136,8 @@ That is all for the MR/HR/Alliance of the month section thank you for reading an
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![TikTok]()
+![TikTok](https://media.discordapp.net/attachments/1094801817881280592/1154528572011204708/tiktok.png?ex=65193ac5&is=6517e945&hm=21e9a5bcb7d834a51266fccf1179efcc1fd9dbefb809a460e16216b2e333df6a&=)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
