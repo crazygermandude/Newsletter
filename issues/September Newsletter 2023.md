@@ -71,3 +71,28 @@ Greetings Teethyz community! We thought it would fun to take a quick break from 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Greetings Teethyz! This story is something that **Jayla (jayIavs)** encountered at the dentist which seems quite humorous to me and maybe to you too. Do you have any of your own encounters at the dentist which has stuck with you? I definitely have a few. Now without further wait, have fun reading!
+
+Jayla’s (jayIav) story: “This happened right after I resigned. I was shifting as an orthodontist when a Random Client came up to me saying things like "hi im stqrlls, this is my alt" i was so confused bc i couldn’t tell if they were lying or not 😭. i js answered with "oh ok." They kept following me and after 10-15 minutes they said “im promoting u to sa" i was like "UHM what! I’m an ortho, that’s not possible" and then they started yelling at me for not believing them 💀. i laughed so hard but the most funniest thing was that they "promoted" every single orthodontist and x-ray specialist to sa! it was so weird. i wasn’t able to report cause for some reason their username didn’t show up but oh well that was funny to me.” 
+
+- **Section by ashlvqh and Tailabzp**
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Memories](https://media.discordapp.net/attachments/1094801817881280592/1154657211444891658/Memories.png?ex=6519b293&is=65186113&hm=2f80f5475c3660f40431d05b349e95f63ca4e4f2ad41912d944e8fffa21a2453&=&width=2000&height=400)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Throughout this month, some significant memories have been made in the dentist and our training center. These photos capture friendship in its true glory; whether it be a shift picture or a training photo, memories were made in the process. You may even be in one of the photos! Take a look through some of our September snapshots below.
+
+![September Memories](https://cdn.discordapp.com/attachments/1094801817881280592/1157841302113763378/September_Newsletter_.png?ex=651a133e&is=6518c1be&hm=a5fc5608c33becd444b4e30633940cad844bee125a25fc2865d564505562e121&)
+
+- **Section by vwrsions**
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![MR/HR/Alliance](https://media.discordapp.net/attachments/1094801817881280592/1154657210769617016/otm.png?ex=6519b293&is=65186113&hm=b50240220ae7d22e64983c58ba65e6fc16513c9105d26f24eb05ea400371ac11&=)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
