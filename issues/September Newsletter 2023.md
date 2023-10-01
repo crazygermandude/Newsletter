@@ -132,7 +132,7 @@ Interviewee: glowinqhrt
 - A(glowinqhrt) Collaborating with Teethyz Dentist for community events has been a positive experience every time. Our Public Relations Department is always ecstatic to organize projects with Teethyz due to their positivity and excitement to work with us. We're always looking forward to hosting events with Teethyz Dentist and feel appreciative of their amazing teamwork and always having satisfactory outcomes after events. While we see consistent activity from the Teethyz Dentist PR department, it offers us many possible opportunities to engage. Whether it's alliance events or even public events. Teethyz Dentist is an extraordinary organization we have the privilege of having an alliance with. We cannot wait to see what else this partnership will benefit in the future.
 
 That is all for the MR/HR/Alliance of the month section thank you for reading and have an amazing rest of your day! <3
--**Section by Furnface and 1ndvie**
+- **Section by Furnface and 1ndvie**
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -140,4 +140,29 @@ That is all for the MR/HR/Alliance of the month section thank you for reading an
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Ello everyone! We are back at it again with our monthly tiktok. Our social assistants islafq and avvIeqs have decided to give a go with creating the tiktok this time. Make sure to check it out on our official page!
+
+(Insert it later) 
+
+- **Section by islafq and avvIeqs** 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Birthday](https://media.discordapp.net/attachments/1094801817881280592/1154657211117735936/bdays.png?ex=6519b293&is=65186113&hm=9127d63901240b6c158240b2adfca50948d75c37fc37e1c311f2cc83285446ec&=)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Interviewer: adorlites 
+
+Like all months, September was full of surprises, and even a few birthdays here at Teethyz! Here’s a few statements from management members who celebrated wonderful their birthdays this month.
+
+![Birthday](https://media.discordapp.net/attachments/1094801817881280592/1157908678872150087/New_September_Birthdays_1st.png?ex=651a51fd&is=6519007d&hm=52d6ac8749dbe49e49b9d61f74caad3eef583b2ea17f382d8753a7315a9864b7&=&width=1868&height=1050)
+
+![Birthday 2](https://media.discordapp.net/attachments/1094801817881280592/1157908679203487795/September_Birthdays_2nd.png?ex=651a51fe&is=6519007e&hm=d6dceeb41d95a3a6f066abad1430c27b6b3d86fe38a0c10d5a60a05e6f45d915&=&width=1868&height=1050)
+
+Well, that was a long list! Happy belated birthdays to everyone, we really hope you enjoyed your day, and we can’t wait to see whose birthdays are yet to come next month!
+
+- **Section by adorlites** 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
