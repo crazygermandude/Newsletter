@@ -1,7 +1,7 @@
 ![Teethyz Fall Newsletter](https://cdn.discordapp.com/attachments/1094801817881280592/1154527111202226226/teethyznewsletter.png)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Ello everyone! We are back again with our September newsletter. We got ourselves a lot of coolio sections so make sure to give it a lil read. :D 
+► Ello everyone! We are back again with our September newsletter. We got ourselves a lot of coolio sections so make sure to give it a lil read. :D 
 ~ Newsletter Team
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -9,7 +9,7 @@ Ello everyone! We are back again with our September newsletter. We got ourselves
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-During the following days September 15 - October 15 is  seen each year as Hispanic Heritage Month. This is in recognition of the Hispanic community's accomplishments. People from all throughout the country take part in festivities, festivals, and educational activities that discuss tradition and history during this holiday. Now is the moment to pay attention to and honor the distinctive traditions that have had a significant impact on American society.
+► During the following days September 15 - October 15 is  seen each year as Hispanic Heritage Month. This is in recognition of the Hispanic community's accomplishments. People from all throughout the country take part in festivities, festivals, and educational activities that discuss tradition and history during this holiday. Now is the moment to pay attention to and honor the distinctive traditions that have had a significant impact on American society.
 
 - **Section by dietvivi & k6tiexishot**
 
@@ -19,7 +19,7 @@ During the following days September 15 - October 15 is  seen each year as Hispan
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Greetings, Teethyz community! This month we asked a few MR+ about their favorite fall food and activities. Do you have any of the same interests as some of the people below? Keep reading to find out!
+► Greetings, Teethyz community! This month we asked a few MR+ about their favorite fall food and activities. Do you have any of the same interests as some of the people below? Keep reading to find out!
 
 
 **Interviewee: e2milys**
@@ -59,7 +59,7 @@ Thank you for reading and have a lovely September and a wonderful fall! We hope 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Greetings Teethyz community! We thought it would fun to take a quick break from reading, and complete a small activity! We've put together a fun back to school word unscramble. The unscramble below consists of 9 different words that have been scrambled. Your job is to rearrange all the letters in each word, to find the original word! Have fun everyone! :) 
+► Greetings Teethyz community! We thought it would fun to take a quick break from reading, and complete a small activity! We've put together a fun back to school word unscramble. The unscramble below consists of 9 different words that have been scrambled. Your job is to rearrange all the letters in each word, to find the original word! Have fun everyone! :) 
 
 ![Unscramble Sheet](https://cdn.discordapp.com/attachments/1094801817881280592/1156980636628824064/Word_Unscramble.png?ex=6516f1af&is=6515a02f&hm=e66d27cf68a9b5d3d33f432526e524bd4a6402daa89fb341e795aa269343c4bc&)
 
@@ -71,9 +71,9 @@ Greetings Teethyz community! We thought it would fun to take a quick break from 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Greetings Teethyz! This story is something that **Jayla (jayIavs)** encountered at the dentist which seems quite humorous to me and maybe to you too. Do you have any of your own encounters at the dentist which has stuck with you? I definitely have a few. Now without further wait, have fun reading!
+► Greetings Teethyz! This story is something that **Jayla (jayIavs)** encountered at the dentist which seems quite humorous to me and maybe to you too. Do you have any of your own encounters at the dentist which has stuck with you? I definitely have a few. Now without further wait, have fun reading!
 
-Jayla’s (jayIav) story: “This happened right after I resigned. I was shifting as an orthodontist when a Random Client came up to me saying things like "hi im stqrlls, this is my alt" i was so confused bc i couldn’t tell if they were lying or not 😭. i js answered with "oh ok." They kept following me and after 10-15 minutes they said “im promoting u to sa" i was like "UHM what! I’m an ortho, that’s not possible" and then they started yelling at me for not believing them 💀. i laughed so hard but the most funniest thing was that they "promoted" every single orthodontist and x-ray specialist to sa! it was so weird. i wasn’t able to report cause for some reason their username didn’t show up but oh well that was funny to me.” 
+► Jayla’s (jayIav) story: “This happened right after I resigned. I was shifting as an orthodontist when a Random Client came up to me saying things like "hi im stqrlls, this is my alt" i was so confused bc i couldn’t tell if they were lying or not 😭. i js answered with "oh ok." They kept following me and after 10-15 minutes they said “im promoting u to sa" i was like "UHM what! I’m an ortho, that’s not possible" and then they started yelling at me for not believing them 💀. i laughed so hard but the most funniest thing was that they "promoted" every single orthodontist and x-ray specialist to sa! it was so weird. i wasn’t able to report cause for some reason their username didn’t show up but oh well that was funny to me.” 
 
 - **Section by ashlvqh and Tailabzp**
 
@@ -83,7 +83,7 @@ Jayla’s (jayIav) story: “This happened right after I resigned. I was shiftin
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Throughout this month, some significant memories have been made in the dentist and our training center. These photos capture friendship in its true glory; whether it be a shift picture or a training photo, memories were made in the process. You may even be in one of the photos! Take a look through some of our September snapshots below.
+► Throughout this month, some significant memories have been made in the dentist and our training center. These photos capture friendship in its true glory; whether it be a shift picture or a training photo, memories were made in the process. You may even be in one of the photos! Take a look through some of our September snapshots below.
 
 ![September Memories](https://cdn.discordapp.com/attachments/1094801817881280592/1157841302113763378/September_Newsletter_.png?ex=651a133e&is=6518c1be&hm=a5fc5608c33becd444b4e30633940cad844bee125a25fc2865d564505562e121&)
 
@@ -95,9 +95,9 @@ Throughout this month, some significant memories have been made in the dentist a
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Greeting once again Teethyz, and welcome back to our Of The Month section! In this section you will find out about our Alliance of the month, our MR of the month, and our HR of the month! Let's start with our MR of the month!
+► Greeting once again Teethyz, and welcome back to our Of The Month section! In this section you will find out about our Alliance of the month, our MR of the month, and our HR of the month! Let's start with our MR of the month!
 
-Our MR Of The Month was… **eriqva (Erica)**!  We are all very proud of her for winning such a highly esteemed award! I was able to get an exclusive interview with Erica as a part of this, so read and enjoy!
+► Our MR Of The Month was… **eriqva (Erica)**!  We are all very proud of her for winning such a highly esteemed award! I was able to get an exclusive interview with Erica as a part of this, so read and enjoy!
 
 Interviewer: Furnface
 Interviewee: eriqva (Erica)
@@ -109,7 +109,7 @@ Interviewee: eriqva (Erica)
 3. Q(Furnface) What’s some advice you would give to MR’s trying to one day get MR of the month.
 - A(Erica) Set clear goals, define what you want to achieve and create a plan to achieve those goals, excel in your current rank, go above and beyond in your responsibilities. Deliver exceptional results, and constantly exceed expectations. Stay motivated, and maintain a growth mindset. I want to remind you that you don’t really need certain things to be chosen, I tried my best to be communicative and active.
 
-Some great words from Erica and we congratulate her on the amazing achievements and getting MR of the month! Now for our HR of the month segment! Our HR for the month of September was… **stqrlls! (Lily)**! Congratulations to Lily on getting this amazing achievement! As a part of this, I got an exclusive interview with Lily!
+► Some great words from Erica and we congratulate her on the amazing achievements and getting MR of the month! Now for our HR of the month segment! Our HR for the month of September was… **stqrlls! (Lily)**! Congratulations to Lily on getting this amazing achievement! As a part of this, I got an exclusive interview with Lily!
 
 Interviewer: Furnace
 Interviewee: stqrlls (Lily)
@@ -121,7 +121,7 @@ Interviewee: stqrlls (Lily)
 3. Q(Furnface) What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
 - A(Lily) Do not give up, maintain good activity and communicate with others as much as you can. Don’t overwork yourself though!
      
-Some great words from Lily and we are all very proud of her momentous achievement as earning an award like HR of the month is no easy task! Now our next section is our alliance of the month! This is a section where our team hand picks an alliance then we think is professional, kind, and respectful! For this months alliance of the month it is… Fresh Dentist! Congratulations Fresh Dentist! As apart of this, I got an exclusive interview with one of Fresh's PR Members... **glowinqhrt**!
+► Some great words from Lily and we are all very proud of her momentous achievement as earning an award like HR of the month is no easy task! Now our next section is our alliance of the month! This is a section where our team hand picks an alliance then we think is professional, kind, and respectful! For this months alliance of the month it is… **Fresh Dentist**! Congratulations Fresh Dentist! As apart of this, I got an exclusive interview with one of Fresh's PR Members... **glowinqhrt**!
 
 Interviewer: Furnface
 Interviewee: glowinqhrt
@@ -140,9 +140,9 @@ That is all for the MR/HR/Alliance of the month section thank you for reading an
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Ello everyone! We are back at it again with our monthly tiktok. Our social assistants islafq and avvIeqs have decided to give a go with creating the tiktok this time. Make sure to check it out on our official page!
+► Ello everyone! We are back at it again with our monthly tiktok. Our social assistants islafq and avvIeqs have decided to give a go with creating the tiktok this time. Make sure to check it out on our official page!
 
-(Insert it later) 
+[September TT](https://www.tiktok.com/@teethyz.official/video/7285042442338913566)
 
 - **Section by islafq and avvIeqs** 
 
@@ -154,7 +154,7 @@ Ello everyone! We are back at it again with our monthly tiktok. Our social assis
 
 Interviewer: adorlites 
 
-Like all months, September was full of surprises, and even a few birthdays here at Teethyz! Here’s a few statements from management members who celebrated wonderful their birthdays this month.
+► Like all months, September was full of surprises, and even a few birthdays here at Teethyz! Here’s a few statements from management members who celebrated wonderful their birthdays this month.
 
 ![Birthday](https://media.discordapp.net/attachments/1094801817881280592/1157908678872150087/New_September_Birthdays_1st.png?ex=651a51fd&is=6519007d&hm=52d6ac8749dbe49e49b9d61f74caad3eef583b2ea17f382d8753a7315a9864b7&=&width=1868&height=1050)
 
@@ -166,7 +166,7 @@ Well, that was a long list! Happy belated birthdays to everyone, we really hope 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Thank you for reading our September Newsletter! See you next month.
+► Thank you for reading our September Newsletter! See you next month.
 
 ~ ♚ Credits! ♚ ~
 
