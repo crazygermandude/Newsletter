@@ -162,7 +162,7 @@ Like all months, September was full of surprises, and even a few birthdays here 
 
 Well, that was a long list! Happy belated birthdays to everyone, we really hope you enjoyed your day, and we can’t wait to see whose birthdays are yet to come next month!
 
-- **Section by adorlites** 
+- **Section by adorlites and bearfuhl** 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -176,12 +176,12 @@ Newsletter Board: stqrlls, julvqs, mckcnzies, & witty20007
 
 Site Provider/Advisor: Jyrezo
 
-Graphics: bearfuhl
+Graphics: bearfuhl, michallol7
 
-Section Authors: 
+Section Authors: ashlvqh, havivq, PerfectlyAnnie, Furnface, 1ndvie, vwrsions, K6TIEXISHOT, mariesluvqs
 
-Photographers: 
+Photographers: echvanted, riyesn, Mrs_KawaiiCat
 
-Social Assistants: 
+Social Assistants: e2milys, EleqantEmma, JasJolly, avvIeqs, islafq, shiny_laccy, vaemmlaqx 
 
-Editors: 
+Editors: dietvivi, TailaBzp, Cas6nx, e2anores, assortedcupcake22, RBLXWithEmily
