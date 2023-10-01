@@ -108,3 +108,20 @@ Interviewee: eriqva (Erica)
     A(Erica) If they are aiming to reach MR, I would tell them to focus on activity, communication, multiple skills that would be valuable for the MR team. Continuously learn and improve, stay determined and don’t give up if you fail at first. Lastly I would remind them that it is also just a game and you should always put yourself over it, but if it’s something you really do care about, go for it!
 3. Q(Furnface) What’s some advice you would give to MR’s trying to one day get MR of the month.
     A(Erica) Set clear goals, define what you want to achieve and create a plan to achieve those goals, excel in your current rank, go above and beyond in your responsibilities. Deliver exceptional results, and constantly exceed expectations. Stay motivated, and maintain a growth mindset. I want to remind you that you don’t really need certain things to be chosen, I tried my best to be communicative and active.
+
+Some great words from Erica and we congratulate her on the amazing achievements and getting MR of the month! Now for our HR of the month segment! Our HR for the month of September was… **stqrlls! (Lily)**! Congratulations to Lily on getting this amazing achievement! As a part of this, I got an exclusive interview with Lily!
+
+Interviewer: Furnace
+Interviewee: stqrlls (Lily)
+
+1. Q(Furnface) What was your reaction to getting HR of the month?
+     A(Lily) I was very shocked! I was not expecting it at all.
+2. Q(Furnface) What’s some advice you would give to LR’s trying to be an HR one day.
+     A(Lily) Don’t be afraid to speak up and share your opinions!
+3. Q(Furnface) What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
+     A(Lily) Do not give up, maintain good activity and communicate with others as much as you can. Don’t overwork yourself though!
+     
+Some great words from Lily and we are all very proud of her momentous achievement as earning an award like HR of the month is no easy task! Now our next section is our alliance of the month! This is a section where our team hand picks an alliance then we think is professional, kind, and respectful! For this months alliance of the month it is… Fresh Dentist! Congratulations Fresh Dentist! As apart of this, I got an exclusive interview with one of Fresh's PR Members... **glowinqhrt**!
+
+Interviewer: Furnface
+Interviewee: glowinqhrt
