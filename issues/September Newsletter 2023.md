@@ -142,7 +142,7 @@ That is all for the MR/HR/Alliance of the month section thank you for reading an
 
 ► Ello everyone! We are back at it again with our monthly tiktok. Our social assistants islafq and avvIeqs have decided to give a go with creating the tiktok this time. Make sure to check it out on our official page!
 
-[September TT](https://www.tiktok.com/@teethyz.official/video/7285042442338913566)
+[September TT](https://www.tiktok.com/@teethyz.official/video/7285045094414093598)
 
 - **Section by islafq and avvIeqs** 
 
