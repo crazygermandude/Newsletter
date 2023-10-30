@@ -27,6 +27,8 @@ Ello! Welcome to our October (Aka spooky month) newsletter! There's a lot of goo
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 🕸️Teethyz Spot the Difference🕸️
+
 **There are 7 differences in this.**
-~ shiny_laccy & avvieqs
+
+~ Section by shiny_laccy & avvieqs
 
