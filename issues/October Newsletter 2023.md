@@ -12,3 +12,21 @@ Ello! Welcome to our October (Aka spooky month) newsletter! There's a lot of goo
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+🕸 ⋆｡° Homecoming Recap! ⋆｡° ✩🕸
+
+.𖥔 ݁ ˖ At Teethyz we celebrated Hocecoming on October 1, 2023. The theme was Haunted Homecoming, and there definitely were some spooky outfits! To start it off, homecoming everyone gathered in the ballroom and talked with one another. Especially, everyone got the chance to participate in a fun maze! There was a bit of a catch. You had to survive the maze, and run away from the ghouls. Once the maze was finished, everyone went back into the ballroom to discuss who to vote for King and Queen! Congratulations to our two winners. The fun wasn’t over yet! Everyone got to participate in last mortal standing. The mortals were all placed into a dome, and you had to use your skills to survive and be the last mortal standing. Once the game concluded, we took one last photo together to celebrate the fun we had. 
+
+🕷 Thank you to the Teethyz Public Relations department for putting on this event. We all enjoyed it so much!
+
+~ Section by PerfectlyAnnie
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Spot the Difference](https://cdn.discordapp.com/attachments/1094801817881280592/1167555015871823993/spotthedifference.png?ex=654e8d57&is=653c1857&hm=c8581b6ee43deb67ff328a05975f766676c2770f3a487423d4369e8927e4ff62&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+🕸️Teethyz Spot the Difference🕸️
+**There are 7 differences in this.**
+~ shiny_laccy & avvieqs
+
