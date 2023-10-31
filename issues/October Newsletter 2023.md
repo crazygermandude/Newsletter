@@ -81,4 +81,11 @@ A: I was walking down the street on Halloween night. All of a sudden, Jason from
 
 A: Trick-or-treating is a old Halloween tradition where children go from house to house dressed in any costumes, to receive treats from their neighbors.
 
-✧.* » Section by dietvivi 
+~ ✧.* » Section by dietvivi 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Memories](https://cdn.discordapp.com/attachments/1094801817881280592/1167556366236405860/memories.png?ex=654e8e99&is=653c1999&hm=3f8f3c21a436ee30ecdf50342234d26c0e19786d642b4e03468075f4ccbdd366&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
