@@ -88,4 +88,94 @@ A: Trick-or-treating is a old Halloween tradition where children go from house t
 ![Memories](https://cdn.discordapp.com/attachments/1094801817881280592/1167556366236405860/memories.png?ex=654e8e99&is=653c1999&hm=3f8f3c21a436ee30ecdf50342234d26c0e19786d642b4e03468075f4ccbdd366&)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+Something something here 
+
+~Section by (smth) 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![OTM](https://cdn.discordapp.com/attachments/1094801817881280592/1167557634203861013/mrhr.png?ex=654e8fc8&is=653c1ac8&hm=b00b06697722d20bf66893ac95dd9eb48e915d90f1abb9767724d316ba06d608&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+➫ ✉️ Greetings, members of the Teethyz Community! We are pleased to present the latest edition of the "Of the Month" section, featuring insightful responses from the MR, HR, and Alliance of the month. Please enjoy the following interview beginning with our MR of the month, Lovyrie (Ivy)!
+
+
+▫ 🎃 Our incredible MR of the month is lovyrie (Ivy)! Her hard work, positive attitude, and exceptional performance keeps our Teethyz environment enjoyable. We are grateful for her dedication and the enthusiasm she brings to every task. We had the opportunity to have an Interview with Ivy so please enjoy the following Q&A session below.
+
+**MR OTM**
+┄┄┄┄┄┄┄┄┄┄┄┄┄
+
+interviewer: mariesluvqs
+interviewee: lovyrie
+
+(Q) | **What was your reaction after finding out you were selected for MR/HROTM?**
+
+
+(A) So I was eating breakfast aaand when I came back to check on my phone it was like full of pings. I thought someone got promoted or something, but turns out people spammed my dms and pinged me in the chat!! I was very happy, obviously surprised and I didn’t see it coming.
+
+(Q) | **What’s some advice you’d give to lrs trying to get MR?**
+
+
+(A) Don’t give up and don’t view it as a goal you can’t achieve. Just like anything in life, if you set your mind to it, work hard and have your desired goal envisioned it will happen. Don’t overwork yourself, burn yourself out, use your energy and time wisely and just have fun it is just a game after all!!
+
+(Q) | **What’s some advice you’d give to anyone trying to get OTM?**
+ 
+
+(A) Things like these come when you least expect them. In order to achieve them I believe you need to enjoy the actual experience rather than competing for the amount of time or activity. Enjoy your time as an MR as you genuinely would, try to picture how can you help this community in your own unique way and just be good and positive. I believe a huge part of the MROTM role is just loving what you do and striving to do even better.
+
+
+▫ 🎃 Congratulations to our standout HR of the month, Chrissy (XxCandy2372xX)! As one of our Public Relations Directors, her commitment and excellence at Teethyz have been truly unparalleled. Don't miss our insightful interview with her below, where she shares her thoughts on the following questions!
+
+**HR OTM**
+┄┄┄┄┄┄┄┄┄┄┄┄┄
+
+(Q) | **What was your reaction after finding out you were selected for MR/HROTM?**
+
+
+(A) Ngl, I felt surprised cuz I didn't really do much, LMAO- BUT! I know I put a lot of effort and thought into certain project's here. so I'm kinda glad at the same time that there's some sort of recognition for it. Something to know that my work wasn't in vain. JAJA!
+
+
+(Q) | **What’s some advice you’d give to lrs trying to get MR?**
+
+
+
+(A) My personal advice for LRs trying to become MRs would be to tone things down a bit and vibe. Don't put yourself in a position where you feel you HAVE to work super hard to get what you want. Cuz forcing yourself to become apart of something is just not it. As long as your AWARE that this is an online community and YOU specifically want to be apart of the team. Cuz a game is supposed to be fun! Not stressful.
+
+(Q) | **What’s some advice you’d give to anyone trying to get OTM?**
+
+
+(A) Uuhhhhhhhhhhhhh, just be u. ;)
+
+
+▫ 🎃 This month, Kanji Teahouse was our Alliance OTM! We were able to have an interview with one of their communications officer, and you can read all about it below.
+
+Interviewer: Blueqxia
+Interviewee: equcp
+
+
+(Q) | **Share one memorable factor about Teethyz Dentist that stands out most to you.**
+
+
+
+(A) Most memorable factor about Teethyz would have to be how unique the group is. It was not only the first dentist group of the industry but it is and always will be the biggest one. The games really show off how unique it is and how much they have revolutionized the industry!
+
+
+(Q) | **How has the experience been for Kanji Teahouse while collaborating with Teethyz Dentist?**
+
+
+
+(A) When collaborating with Teehtyz the relations team has always been the most kind. They have always been active, hard working, and kind It is so easy to plan events with them as they always have the best ideas and respond so quick. Even after finishing the event they always make sure that the winners got the prize!
+
+
+
+With this, We've reached the end of our monthly spotlight for MR/HR/Alliance OTM. It's always a pleasure to celebrate the hard work and dedication of these exceptional members! Thank you all for your time.
+
+~ Section by Blueqxia and Mariesluvqs
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![TikTok](https://cdn.discordapp.com/attachments/1094801817881280592/1167559069662445679/tiktok.png?ex=654e911e&is=653c1c1e&hm=19cda3b005ce4ae4663bb8c84ea64c0b062b43c98b4e3f9a25e83b7f25e020b0&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
