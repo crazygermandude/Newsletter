@@ -30,5 +30,55 @@ Ello! Welcome to our October (Aka spooky month) newsletter! There's a lot of goo
 
 **There are 7 differences in this.**
 
+![Spot the Difference Sheet](https://cdn.discordapp.com/attachments/1094801817881280592/1168930087706566676/Spot_the_Difference.png?ex=65538dfa&is=654118fa&hm=dc135a85999fa9910ccf70cf79190572ffd1e02085e4daaed32b7324513ea51c&)
+
 ~ Section by shiny_laccy & avvieqs
 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Breast Cancer Awareness](https://cdn.discordapp.com/attachments/1094801817881280592/1167551606359851148/bcam.png?ex=654e8a2b&is=653c152b&hm=4af7cc7e3379e94f3ea46fe5f1e94e05270f9224d5739acbac23b0c9983060d6&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+『 **Breast Cancer Awarness** 』
+
+« Hello, as you’re reading this, October is Breast Cancer Awareness Month. Breast cancer is a type of disease where the cells in the breast go out of control. Breast cancer usually starts in the ducts or lobules. It can spread through other parts of the body, too. Breast cancer can be caused due to aging, genetics, etc. During breast cancer awareness month, you can donate money to help charity, fundraising, or do charity walks/runs/swims. » 
+
+~ ❥ Section by havivq
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Halloween Interviews](https://media.discordapp.net/attachments/1094801817881280592/1167555713535574066/interviews.png?ex=654e8dfe&is=653c18fe&hm=d8f07a81d061530d3657b4f858384860c5539ca57c4a264c0ffb083469acdd1b&=&width=2160&height=432)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+✧.* 💀 » Halloween is the most famous holiday celebrated in October! It's the most spookiest, but lively holiday where many celebrate going trick-or-treating with friends, and family or staying at home and watching a scary movie! To get in-touch with this holiday, we've decided to interview some people with Halloween related questions! Let's get into them. 
+
+      🦇 **HALLOWEEN INTERVIEWS** 🦇
+
+                  Interviewer: dietvivi
+            Interviewee: whiteboyfangirl
+
+👻 ✧. ┊ ⁭Q: What was your favorite part of trick or treating? 
+
+A: My favorite part is getting chocolate in my basket because it’s very good and chocolate is always the best candy to get on Halloween!
+
+                         ─── ⋆⋅☆⋅⋆ ──
+
+                   Interviewer: dietvivi
+                 Interviewee: bforde49
+
+🌑 ✧. ┊ ⁭ Q:  During Halloween night, what was the scariest thing you saw? 
+
+A: I was walking down the street on Halloween night. All of a sudden, Jason from Friday the 13th appears from the shadows knocking on door to door for candy. He was tall and scary.
+
+                         ─── ⋆⋅☆⋅⋆ ──
+
+                   Interviewer: dietvivi
+               Interviewee: kpopbpkiana
+
+🕸️ ✧. ┊ ⁭ Q: What is Halloween to you?
+
+A: Trick-or-treating is a old Halloween tradition where children go from house to house dressed in any costumes, to receive treats from their neighbors.
+
+✧.* » Section by dietvivi 
