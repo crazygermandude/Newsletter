@@ -179,3 +179,13 @@ With this, We've reached the end of our monthly spotlight for MR/HR/Alliance OTM
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+► Ello everyone! Our social assistants have yet again created a Tiktok just in time for the spooky season. The link to the Tiktok will be below! While your there, make sure to give us a like and follow. 
+
+(insert tiktok link here) 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Birthdays](https://cdn.discordapp.com/attachments/1094801817881280592/1167559804466761788/birthdays.png?ex=654e91cd&is=653c1ccd&hm=e347d62ce59222c7a8e4b11b1b5561806f4ac21515985883e87b144f5a5dc958&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
