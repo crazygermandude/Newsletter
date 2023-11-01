@@ -206,7 +206,7 @@ With this, We've reached the end of our monthly spotlight for MR/HR/Alliance OTM
 
 ► Ello everyone! Our social assistants have yet again created a Tiktok just in time for the spooky season. The link to the Tiktok will be below! While your there, make sure to give us a like and follow. 
 
-[October TT](https://www.tiktok.com/@teethyz.official/video/7285045094414093598)
+[October TT](https://www.tiktok.com/@teethyz.official/video/7296515051299622174)
 
 ~ Section by EleqantEmma & e2milys
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
