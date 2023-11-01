@@ -248,7 +248,7 @@ With this, We've reached the end of our monthly spotlight for MR/HR/Alliance OTM
 PerfectlyAnnie
 
 
-Ღ 🧁Interviewer vaemmlaqx
+Ღ 🧁Interviewer vaemmlaqx + Graphics Team (bearfuhl & michallol7)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
