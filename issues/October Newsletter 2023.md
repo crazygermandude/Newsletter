@@ -145,7 +145,7 @@ interviewee: lovyrie
 (Q) | **What’s some advice you’d give to anyone trying to get OTM?**
 
 
-(A) Uuhhhhhhhhhhhhh, just be u. ;)
+(A) Uuhhhhhhhhhhhhh, just be you. ;)
 
 
 ▫ 🎃 This month, Kanji Teahouse was our Alliance OTM! We were able to have an interview with one of their communications officer, and you can read all about it below.
@@ -183,9 +183,47 @@ With this, We've reached the end of our monthly spotlight for MR/HR/Alliance OTM
 
 (insert tiktok link here) 
 
+~ Section by EleqantEmma & e2milys
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 ![Birthdays](https://cdn.discordapp.com/attachments/1094801817881280592/1167559804466761788/birthdays.png?ex=654e91cd&is=653c1ccd&hm=e347d62ce59222c7a8e4b11b1b5561806f4ac21515985883e87b144f5a5dc958&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+⋞↬⌈𝓞𝓬𝓽𝓸𝓫𝓮𝓻 𝓫𝓲𝓻𝓽𝓱𝓭𝓪𝔂𝓼⌉≽
+
+🍂ღ『October went by so fast, in this time we were able to celebrate some amazing birthdays of amazing people, let’s see what they have to say about their birthday!』ღ🍂
+
+*🎂➯ **shiny_laccy** October 7th.
+
+
+🎂➯ **Lucus_Elliot** - October 3rd.
+
+
+🎂➯ **kpopbkiana** - October 21st
+
+
+🎂➯ **EvaRoblox2hello** - October 16th.
+
+
+🎂➯ **zwaliis** - October 24th
+
+
+🎂➯ **pvnecxne** October 4th.
+
+
+🎂➯ **louiseh12** - October 9th.
+
+
+🎂➯ **aavrorqa** - October 18th.
+
+![OctoberBirthdays](https://cdn.discordapp.com/attachments/1094801817881280592/1169116201495040050/Screenshot_2023-10-31_at_8.29.18_PM.png?ex=65543b4f&is=6541c64f&hm=3d1f2848fa0b0b16bf6c0245bd2768c84a98a6bc6be64423453fe6b59416700e&)
+
+🎂➯That’s all about birthday for now! Happy birthday to everyone, I’m sure we are all excited about the birthdays coming up next month! 
+PerfectlyAnnie
+
+
+Ღ 🧁Interviewer vaemmlaqx
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
