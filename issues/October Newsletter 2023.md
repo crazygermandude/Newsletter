@@ -88,9 +88,34 @@ A: Trick-or-treating is a old Halloween tradition where children go from house t
 ![Memories](https://cdn.discordapp.com/attachments/1094801817881280592/1167556366236405860/memories.png?ex=654e8e99&is=653c1999&hm=3f8f3c21a436ee30ecdf50342234d26c0e19786d642b4e03468075f4ccbdd366&)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
-Something something here 
 
-~Section by (smth) 
+『 **Memories** 』
+
+✧ This month has brought us unforgettable moments at both the dentistry and during training sessions. Whether you're hanging out with friends or witnessing the successful conclusion of training, you may just spot yourself in one of these pictures. Explore a collection of our October snapshots!
+
+![Shift& Trainings](https://cdn.discordapp.com/attachments/1045938805103935528/1168938132440350742/Training__shift_photos.png?ex=65539578&is=65412078&hm=39d6c2d1ef62b3abc52de3b8ebd8d2e0081e04ebd9dc156568e55d287ce7c54d&)
+
+![Shift& Trainings2](https://cdn.discordapp.com/attachments/1045938805103935528/1168938226615062589/Training_board.png?ex=6553958f&is=6541208f&hm=f42cbfe293ce964fa2456f30531bb7def4300f710206d952c12c622015abd34e&)
+
+✧ Ah, what do we have here... a collection of funny pictures, perhaps? We hope that revisiting these images brings both laughter and a warm smile to your face! 
+
+![Funny](https://cdn.discordapp.com/attachments/1095864378152194129/1169081684684177508/PicsArt_11-01-08.56.44.jpg?ex=65541b2a&is=6541a62a&hm=a3c6cc483dffe9a58980b74813b524d7ffa682bea70c1a8836f6deb69111d9ff&)
+
+✧ We are delighted to share a few promotion pictures, and we hope that you have been thoroughly enjoying your new position and responsibilities so far. Congratulations on your well-earned promotion!
+
+![Promotions](https://cdn.discordapp.com/attachments/1095864378152194129/1169081717492031578/PicsArt_11-01-09.03.41.jpg?ex=65541b31&is=6541a631&hm=17e30fe9a3ad04b24040d402cfff203a70ca7faaafd9d437bc4d4a5eb540c872&)
+
+✧ And of course, we've got pictures from alliance visits! We hope you cherish these moments, as we believe they'll strengthen our bond even more!
+
+![Alliance](https://cdn.discordapp.com/attachments/1095864378152194129/1169076676932665484/Alliance_board.png?ex=65541680&is=6541a180&hm=10fd1bf0570b16471f8f4e07815b6b210da8f7487111e1f111ae23a3aebe1626&)
+
+✧ Woop woop! Halloween is getting close, and we hope you're excited too! We've made a set of Halloween and countdown pictures for you as we get closer to the spooky holiday.
+
+![Halloween](https://cdn.discordapp.com/attachments/1095864378152194129/1169081741798027305/PicsArt_11-01-09.11.23.jpg?ex=65541b37&is=6541a637&hm=6e9dd47d66841043b4e6c1b780af364d1a2cfd495e5ea6f3866e7818d5b754db&)
+
+✧ We thank you for taking the time to look back at these special memories with us. We look forward to creating many more wonderful moments together in the future!
+
+~Section by Photography Team (riyesn, Mrs_KawaiiCat, echvanted) 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
