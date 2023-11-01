@@ -252,3 +252,22 @@ PerfectlyAnnie
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+► Thank you for reading our October Newsletter! See you next month.
+
+~ ♚ Credits! ♚ ~
+
+Lead Newsletter Board: XxCandy2372xX
+
+Newsletter Board: lovqmais, missel_k2, RBLXWithEmily, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: bearfuhl, michallol7
+
+Section Authors:  vwrsions, szarlight, PerfectlyAnnie, mvrthxaa, mariesluvqs, havivq, Furnface, ashlvqh, vcorria, steveygamer2
+
+Photographers: echvanted, riyesn, Mrs_KawaiiCat
+
+Social Assistants: avvIeqs, Blueqxia, e2milys, islafq, JasJolly, shiny_laccy, vaemmlaqx, EleqantEmma
+
+Editors: dietvivi, TailaBzp, Cas6nx, e2anores 
