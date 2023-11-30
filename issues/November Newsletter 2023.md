@@ -1,1 +1,1 @@
-
+![Teethyz November Newsletter](https://cdn.discordapp.com/attachments/1045938805103935528/1179655122909937695/November_Newsletter_Banner.gif?ex=657a9272&is=65681d72&hm=72779c02ecb84ef103634d54e606baca0652f086ded3a28057f7b6a162ef1741&)
