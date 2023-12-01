@@ -205,6 +205,26 @@ You’ve now reached the end of the OTM section. Congratulations to our MR, HR, 
 🎉 **aolqnii** 🎉
 - (A): My birthday is important to me because it's a celebration of my existence and it's a day that I can spend time with my family!
 
-~ **Section by echvanted & avvIeqs**
+~ **Section & Interviewers by echvanted & avvIeqs**
 
  ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+► Thank you for reading our November Newsletter! See you next month.
+
+~ ♚ Credits! ♚ ~
+
+Lead Newsletter Board: XxCandy2372xX
+
+Newsletter Board: lovqmais, missel_k2, RBLXWithEmily, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: bearfuhl, michallol7
+
+Section Authors:   szarlight, PerfectlyAnnie, mariesluvqs, havivq, Furnface, ashlvqh, vcorria, steveygamer2, bvcrls
+
+Photographers: Mrs_KawaiiCat
+
+Social Assistants: avvIeqs, Blueqxia, e2milys, islafq, JasJolly, shiny_laccy, vaemmlaqx, EleqantEmma
+
+Editors: dietvivi, TailaBzp, Cas6nx
