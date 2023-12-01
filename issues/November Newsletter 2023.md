@@ -9,7 +9,7 @@ Welcome to our November Newsletter! We are almost done with 2023, yippie! Novemb
 ![Day of the Dead](https://cdn.discordapp.com/attachments/1094801817881280592/1179974221644955809/Day_of_the_Dead.gif?ex=657bbba1&is=656946a1&hm=9e2c1381e045c74ea72a4376ce728e6921749eff7a93724552ebd639ccf3984d&)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Day of the Dead :wb_pink_flower: :m_skull: 🌹 
+Day of the Dead 🌸 💀 🌹 
 
 Hello, by the time you’re seeing this November has concluded, however, throughout the month many special days were commemorated all around the world. One being, Day of the Dead, widely known as Día De Los Muertos. Day of the Dead is primarily celebrated all throughout Mexico and Central America. This special day is celebrated over two days, November 1st & 2nd, to reunite the dead with the living. On this day people will create offerings for their loved ones who have passed away. The purpose of the offerings is to connect the land of the dead with the living through prayers, foods, festivities, and much more. To anyone who celebrated this special day, we hope you spent it well and could reconnect with loved ones.
 
@@ -105,13 +105,13 @@ Howdy Teethyz! Time to take a small break from reading our wonderful newsletter,
 
 ✎⫸`**MR, HR, and Alliance of the Month!** 
 
-Greetings, Teethyz! We are gladly honoured to show you all our Of The Month section in the November newsletter! In here, will include our MR of the month (lvauraas), HR of the month (K6TIEX) and lastly, alliance of the month (Kecai). So without further ado, we represent to you... **OTM**!
+❍ Greetings, Teethyz! We are gladly honoured to show you all our Of The Month section in the November newsletter! In here, will include our MR of the month (lvauraas), HR of the month (K6TIEX) and lastly, alliance of the month (Kecai). So without further ado, we represent to you... **OTM**!
 
-- Congratulations to our amazing MR of the month, lvauraas (Laura)! By being dedicated in the dentist, answering questions frequently and being kind to everybody, she has deserved this award. Laura has made all of us proud and we are forever thankful for her ardour for Teethyz! Winning this award has given me the great opportunity to interview her.
+❍ Congratulations to our amazing MR of the month, lvauraas (Laura)! By being dedicated in the dentist, answering questions frequently and being kind to everybody, she has deserved this award. Laura has made all of us proud and we are forever thankful for her ardour for Teethyz! Winning this award has given me the great opportunity to interview her.
 
-**MR OTM**
+**MR OTM** ┄┄┄┄┄┄┄┄┄┄┄┄┄
 
-Interviewer: Mrs_KawaiiCat
+**Interviewer: Mrs_KawaiiCat**
 Interviewee: lvauraas
 
 (Q) | How did you feel when you got MROTM?
@@ -126,9 +126,9 @@ Interviewee: lvauraas
 
 (A) | Work hard, ask and answer questions and think about what you are doing and saying as it plays a huge impact!
 
-HR OTM
+**HR OTM** ┄┄┄┄┄┄┄┄┄┄┄┄┄
 
-Interviewer: PerfectlyAnnie
+**Interviewer: PerfectlyAnnie**
 Interviewee: K6TIEX
 
 (Q) | How did you feel when you got HROTM?
@@ -142,3 +142,88 @@ Interviewee: K6TIEX
 (Q) | How would you recommend other MRs+ to get OTM?
 
 (A) | I recommend that people work hard consistently and try to stand out among the rest if they want to earn an OTM award. This could be just by communicating, showing leadership, or going the extra mile in the small things you do.
+
+**Alliance OTM** ┄┄┄┄┄┄┄┄┄┄┄┄┄
+
+**Interviewer: PerfectlyAnnie**
+Interviewee: Beautyaaaf
+
+(Q) | What’s been something you’ve enjoyed while being affiliated with Teethyz?
+
+(A) | Working an affiliate of Teethyz, we have enjoyed meeting your hard working team and bonding through check ins.
+
+(Q) | What’s it like working with Teethyz from an affiliate perspective?
+
+(A) | Working with Teethyz through an affiliate perspective has been easygoing as there’s been strong communication from both ends.
+
+You’ve now reached the end of the OTM section. Congratulations to our MR, HR, and Alliance OTM. We appreciate you all so much! Thank you for reading.
+
+~ **Section by PerfectlyAnnie and Mrs_KawaiiCat**
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+![Tiktok](https://cdn.discordapp.com/attachments/1094801817881280592/1179973461985214494/TokTik.gif?ex=657bbaec&is=656945ec&hm=ce31fef7a55375bb3511254623917b0625ff02f9ee582d8fa6e62f42ec5961df&)
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+(Insert Description Later)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+![Birthdays](https://cdn.discordapp.com/attachments/1094801817881280592/1179977663121719358/Birthday.gif?ex=657bbed5&is=656949d5&hm=0546174735afed5af539f0d44244f41fae77d44394c99938ef8c038aee8441b9&)
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+🎂 🎉 Oh Hey, Don’t mind me just getting our cakes ready for the big day. Let’s introduce our amazing MR novemeber babies… birthdays!
+
+**(Q): What makes your birthday so important you?**
+
+Interviewer: echvanted
+Interviewee: lovinqkvyla
+
+(A) : The thing that makes my birthday so important is probably the chance to get together with my family and celebrate the day I was born, and also eat cake…!
+
+Interviewer: avvIeqs
+Interviewee: kamzvqa 
+
+(A): My birthday is important to me because it symbolizes the day I was born. it’s a time when I feel loved, appreciated, and surrounded by people who care about me. It’s a day filled with joy, laughter and making unforgettable memories.
+
+Interviewer: echvanted
+Interviewee: iiNotNia
+
+(A): What makes my birthday so important to me is the fact that I get to spend it with my family and friendsss! Plus, it's all about meeeeee so of course that's a W!!
+
+Interviewer: avvIeqs
+Interviewee: bvclrs
+
+(A): My birthday is important because I can celebrate my birthday party with my friends.
+
+Interviewer: echvanted
+
+Interviewee: 24k_sxnny
+(A): My birthday is important to me because I get to spend time with the people I love and I get to celebrate being a year older!
+
+Interviewer: avvIeqs
+Interviewee: RBLXWithEmily
+
+(A): Honestly, to me, its that I'm able to celebrate my birthday with my friends and family. I love celebrating my birthday every year with my family and friends.
+
+Interviewer: echvanted
+Interviewee: Sandfairy999
+
+(A): I think what makes my birthday so important to me is that I get to spend time with my family and loved ones, which I appreciate as I can't do it often!
+
+Interviewer: avvIeqs
+Interviewee: lvauraas
+
+(A): My birthday is important because I can spend time with my friends and family!
+
+Interviewer: echvanted
+Interviewee: szarlight
+
+(A): My birthday is so important to me because it's the celebration of me accomplishing another year in life, fulfilling many accomplishments throughout it.
+
+Interviewer: echvanted
+Interviewee: aolqnii
+
+(A): My birthday is important to me because it's a celebration of my existence and it's a day that I can spend time with my family!
+
+~ **Section by echvanted & avvIeqs**
+
+ ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
