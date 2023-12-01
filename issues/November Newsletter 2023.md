@@ -164,7 +164,9 @@ You’ve now reached the end of the OTM section. Congratulations to our MR, HR, 
 ![Tiktok](https://cdn.discordapp.com/attachments/1094801817881280592/1179973461985214494/TokTik.gif?ex=657bbaec&is=656945ec&hm=ce31fef7a55375bb3511254623917b0625ff02f9ee582d8fa6e62f42ec5961df&)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-(Insert Description Later)
+Sometimes, people don't understand the hype around our newsletters, so our social assistants vaemmlaqx & shiny_laccy have dedicated to create a tiktok to show this! Make sure to follow our page and like the video. :) 
+
+
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 ![Birthdays](https://cdn.discordapp.com/attachments/1094801817881280592/1179977663121719358/Birthday.gif?ex=657bbed5&is=656949d5&hm=0546174735afed5af539f0d44244f41fae77d44394c99938ef8c038aee8441b9&)
