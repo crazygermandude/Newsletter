@@ -15,7 +15,7 @@ Hello, by the time you’re seeing this November has concluded, however, through
 - **Section by szarlight**
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
-![Day of the Dead](https://media.discordapp.net/attachments/1094801817881280592/1179959761224085647/Day_of_the_Dead.gif?ex=657bae29&is=65693929&hm=8cb4c894210bbb122d07fe68ed0cfaeb128d036845a5b0611b42acaa7af6dfd4&=&width=2000&height=400)
+![Thanksgiving Holiday](https://cdn.discordapp.com/attachments/1094801817881280592/1179970937672716358/Thanksgiving_Holiday.gif?ex=657bb892&is=65694392&hm=f0c5e5fa41788a390252d94a6e8c759831449a167c5fde872c53496c63452e0c&)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 Test
