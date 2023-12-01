@@ -41,25 +41,25 @@ We have chosen 3 questions to ask a few of our members on our Management team ab
                                                        Interviewee: abbviys 
 
 🍂 Q: Do you believe it’s still autumn/fall, or is it winter?
-❄️ A: Once halloween is done and over, November is generally considered as winter month for me with Christmas music and decorations!
+`❄️ A: Once halloween is done and over, November is generally considered as winter month for me with Christmas music and decorations!
 
 ⛸️ Q: What is your favourite activity to do in the snow?
-⛄ A: I love when it snows, it usually never snows here but when it does I enjoy building snowmen, making snow angles, and my favourite activity is going sledding! 
+`⛄ A: I love when it snows, it usually never snows here but when it does I enjoy building snowmen, making snow angles, and my favourite activity is going sledding! 
 
 🍁 Q: Did you carve a pumpkin this year? If so, what was the design?
-🎃 A: Actually, I didnt! I usually dont carve pumpkins anyway, it takes so much work and effort,  I’m  way too lazy for that honestly! 
+`🎃 A: Actually, I didnt! I usually dont carve pumpkins anyway, it takes so much work and effort,  I’m  way too lazy for that honestly! 
 
                                                       Interviewer: mvrthxaa
                                                      Interviewee: echvanted 
 
 🍂 Q: Do you believe it’s still autumn/fall, or is it winter?
-❄️ A: As much as I love autumn... I have the say, winter is sooo much better and I believe that it's already here!!
+`❄️ A: As much as I love autumn... I have the say, winter is sooo much better and I believe that it's already here!!
 
 ⛸️ Q: What is your favourite activity to do in the snow?
-⛄ A: My favorite activity to do in the snow is definitely rolling around in it and making snow angels, it's so fun to play with the snow! Throwing snowballs at my siblings is 100% a runner up.
+`⛄ A: My favorite activity to do in the snow is definitely rolling around in it and making snow angels, it's so fun to play with the snow! Throwing snowballs at my siblings is 100% a runner up.
 
 🍁 Q: Did you carve a pumpkin this year? If so, what was the design?
-🎃 A: This year, I didn't carve a pumpkin! Halloween was different this year, the spirit wasn't really there... Maybe next year!!
+`🎃 A: This year, I didn't carve a pumpkin! Halloween was different this year, the spirit wasn't really there... Maybe next year!!
 
                                                       Interviewer: vcorria
                                                  Interviewee: Kemilahhhh 
@@ -68,22 +68,22 @@ We have chosen 3 questions to ask a few of our members on our Management team ab
 ❄️ A: Winter.
 
 ☃️ Q: What is your favorite activity to do in the snow?
-⛸️ A: I don’t experience snow, but I would love to try sledding.
+`⛸️ A: I don’t experience snow, but I would love to try sledding.
 
 🍁 Q: Did you carve a pumpkin this year? If so, what was the design?
-🎃 A: No, but if i did I would definitely carve a Roblox man face. 
+`🎃 A: No, but if i did I would definitely carve a Roblox man face. 
 
                                                       Interviewer: vcorria
                                                  Interviewee: mariesluvqs 
 
 🍂 Q: Do you believe it’s still autumn/fall, or is it winter?
-❄️ A: I definitely think it's winter! In Canada it's already snowed a few times, and I'm wearing all my winter clothes whenever I go outside.
+`❄️ A: I definitely think it's winter! In Canada it's already snowed a few times, and I'm wearing all my winter clothes whenever I go outside.
 
 ☃️ Q: What is your favorite activity to do in the snow?
-⛸️ A: I love sledding, especially since there's a super tall hill in a park near my house. I love sledding with my family and friends.
+`⛸️ A: I love sledding, especially since there's a super tall hill in a park near my house. I love sledding with my family and friends.
 
 🍁 Q: Did you carve a pumpkin this year? If so, what was the design?
-🎃 A: Not this year, but last year I carved one of the roblox man face.
+`🎃 A: Not this year, but last year I carved one of the roblox man face.
 
 ˗ˏˋ **Section by: vcorria and mvrthxaa**
 
@@ -96,7 +96,6 @@ We have chosen 3 questions to ask a few of our members on our Management team ab
 Howdy Teethyz! Time to take a small break from reading our wonderful newsletter, and do a Fall themed word unscramble! As you can see below, there are 7 words, each having something to do with fall, scrambled. Now, your job is to rearrange the letters in each word to find the original word. Good luck and have fun, everyone! ♡
 
 ![Word Unscramble Sheet](https://cdn.discordapp.com/attachments/1094758945828114452/1172753423574245386/Orange_and_Yellow_Fall_Festival_Event_Flyer.png?ex=6573ebbc&is=656176bc&hm=64f19d9d68787b2dab80bebc73325b1f37422e4bef8d38807adf01f8512fda59&)
-▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 ~°`•⁀ **Made by JasJolly**
 
@@ -104,4 +103,42 @@ Howdy Teethyz! Time to take a small break from reading our wonderful newsletter,
 ![OTM](https://cdn.discordapp.com/attachments/1094801817881280592/1179973447263211643/OTM.gif?ex=657bbae8&is=656945e8&hm=bc67ffed228d398c34cf3d5764a3ff96c34e69b3502530ce12266b2a47116e44&)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+✎⫸`**MR, HR, and Alliance of the Month!** 
 
+Greetings, Teethyz! We are gladly honoured to show you all our Of The Month section in the November newsletter! In here, will include our MR of the month (lvauraas), HR of the month (K6TIEX) and lastly, alliance of the month (Kecai). So without further ado, we represent to you... **OTM**!
+
+- Congratulations to our amazing MR of the month, lvauraas (Laura)! By being dedicated in the dentist, answering questions frequently and being kind to everybody, she has deserved this award. Laura has made all of us proud and we are forever thankful for her ardour for Teethyz! Winning this award has given me the great opportunity to interview her.
+
+**MR OTM**
+
+Interviewer: Mrs_KawaiiCat
+Interviewee: lvauraas
+
+(Q) | How did you feel when you got MROTM?
+
+(A) | I was so so so happy, I was downstairs when I found out and I said “Oh!” Out loud and ran upstairs! I was very excited to be an OTM besides Katie too!
+
+(Q) | What is a fun fact about you getting MROTM?
+
+(A) | A fun fact is that I got MROTM the month after Ivy got it and we have matching display names!
+
+(Q) | How would you recommend other MRs+ to get OTM?
+
+(A) | Work hard, ask and answer questions and think about what you are doing and saying as it plays a huge impact!
+
+HR OTM
+
+Interviewer: PerfectlyAnnie
+Interviewee: K6TIEX
+
+(Q) | How did you feel when you got HROTM?
+
+(A) I was very surpised when I got HROTM as i was not expecting it!
+
+(Q) | What’s a fun fact about yourself? 
+
+(A) | A fun fact about me is that I am a dancer.
+
+(Q) | How would you recommend other MRs+ to get OTM?
+
+(A) | I recommend that people work hard consistently and try to stand out among the rest if they want to earn an OTM award. This could be just by communicating, showing leadership, or going the extra mile in the small things you do.
