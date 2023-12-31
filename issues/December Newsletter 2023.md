@@ -475,18 +475,22 @@ A) Finding the presents because it did have a reward of you getting a badge and 
 ◉ 2023 was an amazing year for Teethyz! There are many unforgettable moments that the MR/HR team cant wait to show you. We hope you enjoy these collages as much as we do, and you can maybe find yourself in one. Anyway, lets take a look at some of the top 2023 memorable photos!
 
 ◉ Shift photos
+---
 Here, we have the pictures of our most memorable shifts of 2023! We are most grateful that you spend time at the dentist to work and claim appointments!
 ![Shift Collage](https://cdn.discordapp.com/attachments/1094801817881280592/1191097628482613309/Shift_Photos.png?ex=65a4331c&is=6591be1c&hm=560ab2d05dcc99d491af4400376698129e575e62ca25506b10569ce798b1894e&)
 
 ◉ Training photos
+---
 Ho ho ho! Is that... Santa? Oh wait, they are training photos! Lets have a look at our wonderful training photos of 2023!
 ![Training Collage](https://cdn.discordapp.com/attachments/1094801817881280592/1191099878273716244/Training_Photos.png?ex=65a43534&is=6591c034&hm=a9decda9c79b035e76019f66f02a12e14a476fd7cb85bf0c8306c460a6d767ab&)
 
 ◉ Funny photos
+---
 Mmm, is that... Some funny pictures? Oh yes, its timeeeee! Take a look at a recap of the funny memories of 2023!
 ![Funny Collage](https://cdn.discordapp.com/attachments/1094801817881280592/1191101870672978021/Funny_Photos.png?ex=65a4370f&is=6591c20f&hm=499012b66433cb342166640e53677c10262e5b102e8c30266f57c9080e85c365&)
 
 ◉ Alliance photos
+---
 Did someone say alliance photos? I think, yes. Here are some photos of our lovely alliances of 2023! 
 Alliance collage
 ![Alliance Collage](https://cdn.discordapp.com/attachments/1094801817881280592/1191103525292355674/Alliance_Photos.png?ex=65a4389a&is=6591c39a&hm=b2e7f813833643b9315c15db8a0ef8646ab54780098cb0940cfb30d5358abea8&)
