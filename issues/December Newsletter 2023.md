@@ -319,7 +319,7 @@ A (waitintherain) Teethyz’s notable trait of being a dentist group really stan
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![TikTok](https://cdn.discordapp.com/attachments/1094801817881280592/1183894662424047777/ezgif.com-video-to-gif_1.gif?ex=659c73d3&is=6589fed3&hm=0bef6fba983458798c8b5804aac69231e415b93f6583add28a828ed63a770da7&)
+![TikTok](https://cdn.discordapp.com/attachments/1094801817881280592/1191101875299291220/Untitled_design_2.gif?ex=65a43710&is=6591c210&hm=1fa548c6393eb34bb7c754b289a0e46bac438e9119bce9e56511d7cfff91eaac&)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -478,11 +478,11 @@ Here, we have the pictures of our most memorable shifts of 2023! We are most gra
 
 ◉ Training photos
 Ho ho ho! Is that... Santa? Oh wait, they are training photos! Lets have a look at our wonderful training photos of 2023!
-![Training Collage]()
+![Training Collage](https://cdn.discordapp.com/attachments/1094801817881280592/1191099878273716244/Training_Photos.png?ex=65a43534&is=6591c034&hm=a9decda9c79b035e76019f66f02a12e14a476fd7cb85bf0c8306c460a6d767ab&)
 
 ◉ Funny photos
 Mmm, is that... Some funny pictures? Oh yes, its timeeeee! Take a look at a recap of the funny memories of 2023!
-Funny collage
+![Funny Collage]()
 
 ◉ Alliance photos
 Did someone say alliance photos? I think, yes. Here are some photos of our lovely alliances of 2023! 
