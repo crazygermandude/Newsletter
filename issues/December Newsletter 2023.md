@@ -157,7 +157,7 @@ A tasty recipe in Norway is Fårikål. It is a Norwegian Lamb & Cabbage Stew. Yo
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![New Years Resolutions/Plans for 2024](https://cdn.discordapp.com/attachments/1094801817881280592/1189390200397381712/ezgif-4-8cf9f102a1.gif?ex=659dfcf1&is=658b87f1&hm=9fbf59382cc4151e4ae5ea6e52e9af7001dfbbebd27aeb8e55aec0b7fc8c72c9&)
+![New Years Resolutions/Plans for 2024](https://cdn.discordapp.com/attachments/1094801817881280592/1191093137284792330/ezgif-2-3756f0db36.gif?ex=65a42eed&is=6591b9ed&hm=af3791ef1bfb40312a733403bb1d21eb5ec3dd9062da39d968d067274a0994d3&)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -337,3 +337,133 @@ Ello ello! One of our social assistants, EleqantEmma, has created **TWO** tiktok
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+There was many birthdays to be celebrated this December. While we may not be able to commemorate all of the birthdays this month, here are some of the MRs who had birthdays this month! We asked them 3 questions each to get to know them better. Here are their answers!
+
+🎉 **allykieu** 🎉
+
+What is one fun fact about you?
+A) I am an experienced violinist.
+
+ What is your favorite Christmas movie?
+A) Christmas Chronicles!
+
+ What is your favorite feature about the Teethyz Christmas update?
+A) My favorite feature of the new update is probably the ocean that froze! It's easier to get through compared to the water!
+
+🎉 **avvleqs 12/23** 🎉
+
+What is one fun fact about yourself?
+One fun fact about myself is that I really enjoy listening to Taylor swift! She really cheers me up in any situations!
+
+>What is your favorite Christmas movie?
+A) My favourite Christmas movie is Klaus which is on Netflix and It’s about a postman! It is an amazing movie and I absolutely love it. I watch it every year! 
+
+What is your favorite feature about the Christmas update?
+I absolutely adore the Christmas update and I really enjoyed the Christmas event collecting all the presents! I would say my favourite feature would be the big Christmas tree in front of the dentist as it is a really good spot for photos! 🎄
+
+🎉 **Kemilahhhh** 🎉
+
+What is one fun fact about yourself?
+Some fun facts about me are that I have liked K-pop since 2015, I have a small dog and I love soda.
+
+What is your favorite Christmas movie?
+A) My favorite Christmas movie is Home Alone!
+
+What is your favorite feature about the Teethyz Christmas update?
+A) I love that the map is bigger, and the Christmas quest is really fun.
+
+🎉 **crdigvn 12/22** 🎉
+
+What is one fun fact about yourself?
+I have played the piano since 2018!
+
+What is your favorite Christmas movie?
+Home Alone!
+
+What is your favorite feature from the Teethyz Christmas update?
+ The Santa Quest that gives you a Christmas tree badge! 
+
+🎉 **dysanniaa 12/21** 🎉
+
+What is 1 fun fact about yourself?
+A) One fun fact about myself is that I love to travel and explore new cultures. It's always exciting to experience different traditions and try new foods!
+
+What is your favorite  Christmas movie?
+Definitely Home Alone, it always gets me into the holiday spirit!
+
+What is your favourite feature of the Teethyz Christmas update?
+My favorite feature of the Teethyz Christmas update is the Christmas decoration and music that has been added to the dentist! ^^
+
+🎉 **aiaskes  12/21** 🎉
+
+What is 1 fun fact about yourself? 
+I have 5 cats.
+
+What is your favorite  Christmas movie? 
+Polar Express!
+
+What is your favourite feature of the Teethyz Christmas update?
+ I like the Christmas tree badge that we can get from completing the quest Santa gave us.
+ 
+ 🎉 **Tcires 12/20** 🎉
+
+What is one fun fact about you?
+A) I play volleyball!
+
+What is your favorite Christmas movie?
+A) Elf!!!
+
+What is your favorite feature about the Teethyz Christmas update?
+A) FINDING THE PRESENTS.
+
+🎉 **Potatogoesuwu 12/17** 🎉
+
+What is one fun fact about you?
+A) I have 2 cats named Sophie and Kai. They are adorable and I love them so SO much.
+
+What is your favorite Christmas movie?
+A) The best Christmas movie for me would be Elf!
+
+What is your favorite feature about the Teethyz Christmas update?
+A) I love the Christmas Santa hunt!
+
+🎉 **Havivq 12/9** 🎉
+
+What is one fun fact about you?
+A) One interesting fact about me is that I’m a picky eater when it comes to fruits. A lot of people like fruits except for me. I never eat them and I honestly like vegetables more.
+
+What is your favorite Christmas movie?
+A)I don’t watch movies in general but if I could have one, it would be Home Alone!
+
+What is your favorite feature about the Teethyz Christmas update?
+A)I really love the details put into the update. Like how the outside looks, and the quest. Finding the presents in the quest was easy but then I was so confused on the cave part; I didn’t realize that there was another cave!
+
+🎉 **Mayawasbored 12/10** 🎉
+
+What is one fun fact about you?
+A) A fun fact about me is that I’ve participated in over 10 different sports such as hockey, basketball, football, floorball, figure skating, and even more! 
+
+What is your favorite Christmas movie?
+A) It might sound kind of basic but the first home alone movie is my absolute favorite! It’s so much fun to watch and it’s a perfect movie to watch with my family! 
+
+What is your favorite feature about the Teethyz Christmas update?
+A) My favorite thing is probably the decorations in the dentist, especially the tiny details that they’ve added. One of my favorite things to get me in the Christmas spirit is decorating and the dentist being decorated brings me so much joy!
+
+🎉 **Birdiexxlak 12/7** 🎉
+
+What is one fun fact about you?
+A) I do like to do art, it has been in my favor for a very long time especially I do have something I painted on a candance from a couple of years ago and I am still really proud of it, diamond art also does go along since I have done about 4 of them already it’s actually really fun to do them but it does take a long time to complete!
+
+What is your favorite Christmas movie?
+A)Home alone is the best Christmas movie in my opinion!
+
+What is your favorite feature about the Teethyz Christmas update?
+A) Finding the presents because it did have a reward of you getting a badge and toothbux!
+
+~ Section made by Blueqxia & mvthology
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![End of the Year]()
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
