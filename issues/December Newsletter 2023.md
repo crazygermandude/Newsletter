@@ -41,7 +41,7 @@ A: Well, I don't feel like it's too unique, but my cousins, brother and I have t
 🎅  Interviewee: snoopydesai
 A: We always travel to see our grandparents and it’s super fun!! I love seeing them and there is always LOADS of gifts. 
 
-~ Section by 
+~ Section by avvIeqs & zeiqios
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -57,7 +57,7 @@ Have fun everyone, stay safe, and have an incredible holiday season!
 
 ![Christmas Pictionary Sheet](https://cdn.discordapp.com/attachments/1094758945828114452/1189552347794387034/Green_White_Illustrative_Christmas_Greeting_Instagram_Post.png?ex=659e93f4&is=658c1ef4&hm=8205564768931f891fb9805d3090150e650e257baf31c917b392109870106c01&)
 
-~ Section by 
+~ Section by JasJolly
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -77,7 +77,7 @@ Santa Claus did not know what to do with Ardil. He did not like to be outside. H
 At last, Santa realized that Ardil was always talking. Then, in a bright flash, he realized what Ardil could do. He could answer the phone! He was so happy that he finally had a purpose in the workshop. Everybody was constantly calling, and Ardil was the perfect pick for this role! Ardil became the happiest Reindeer in the world as he loved talking to friends, children or even Rudolph, on the phone.
 There’s always something that you are good at. It might take some time to figure out, though.
 
-~ Section by 
+~ Section by bvcrls and vaemmlaqx 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -105,7 +105,7 @@ Holiday traditions in Norway begin early on, typically the last weekend in Novem
 
 A tasty recipe in Norway is Fårikål. It is a Norwegian Lamb & Cabbage Stew. You need to put cabbage and lamb and let it simmer for a few hours. People commonly eat it with potatoes. 
 
-~ Section by 
+~ Section by havivq
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -222,7 +222,7 @@ Christmas is behind us, so we can finally relax and be with family and loved one
 
 (Insert Photos later) 
 
-~ Section by 
+~ Section by Vinnielittle14 & Didi_ek
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -255,6 +255,8 @@ On the 22nd, Emily hosted a sleepover event at the dentist. Then the next day, g
 The last week of our Christmas Event Season let us end the year with a blast! An awesome New Year's Party occurred at the Dentist on December 30th! We hope that you enjoyed the party if you were in attendance. Happy New Year!
 
 The year finished so quickly. It feels as if yesterday was Easter! We hope you enjoyed our events over the month and had an amazing December. Now, let’s move over to our next section!
+
+~ Section by vaemmlaqx and zeiqios
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -315,7 +317,7 @@ Q (steveygamer2) | Can you share one memorable factor of Teethyz Dentist that st
 
 A (waitintherain) Teethyz’s notable trait of being a dentist group really stands out to us, as it is one of the only ones in the industry.
 
-~ Section by 
+~ Section by FurnFace & steveygamer2
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -329,7 +331,7 @@ Ello ello! One of our social assistants, EleqantEmma, has created **TWO** tiktok
 
 (Insert TikTok 2 here) 
 
-~ Section by 
+~ Section by EleqantEmma
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -482,14 +484,17 @@ Ho ho ho! Is that... Santa? Oh wait, they are training photos! Lets have a look 
 
 ◉ Funny photos
 Mmm, is that... Some funny pictures? Oh yes, its timeeeee! Take a look at a recap of the funny memories of 2023!
-![Funny Collage]()
+![Funny Collage](https://cdn.discordapp.com/attachments/1094801817881280592/1191101870672978021/Funny_Photos.png?ex=65a4370f&is=6591c20f&hm=499012b66433cb342166640e53677c10262e5b102e8c30266f57c9080e85c365&)
 
 ◉ Alliance photos
 Did someone say alliance photos? I think, yes. Here are some photos of our lovely alliances of 2023! 
 Alliance collage
+![Alliance Collage](https://cdn.discordapp.com/attachments/1094801817881280592/1191103525292355674/Alliance_Photos.png?ex=65a4389a&is=6591c39a&hm=b2e7f813833643b9315c15db8a0ef8646ab54780098cb0940cfb30d5358abea8&)
 
 That was a lot of memories, right? But thats all from us! We hope that looking at this year’s many collages cheered you up!
 
 ~ Section by Photography team
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
