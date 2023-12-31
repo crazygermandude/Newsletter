@@ -1,1 +1,254 @@
 ![Newsletter Banner](https://cdn.discordapp.com/attachments/1094801817881280592/1187837054646767616/banner.png?ex=65a190f6&is=658f1bf6&hm=5c8f97ae35e6f380be07399ffdf1f37981cbf47ac8569427703da7db82da488b&)
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Ello everyone! Wow, what a year it has been for Teethyz. A lot has changed since the beginning the year. BUT to give it a proper send off, we summarize everything that has happened in the month of December AND having some additional sections too for memories sake. 
+
+We hope you give this a read!
+
+~ Newsletter Team
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+![Christmas / Winter Interviews](https://cdn.discordapp.com/attachments/1094801817881280592/1189387190271221790/ezgif-4-298d9603a1.gif?ex=659dfa23&is=658b8523&hm=7dffec38c46723164c275aba802f741199d168f58300da702df1d932c15a0a76&)
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+🎄 **Q: Winter interviews/ What is your family’s unique holiday tradition?**
+
+❄️  Interviewer: avvieqs
+🎅  Interviewee: iixtashaxii 
+A: So basically! My family does this thing called the ‘Mariah Showdown’ where you can’t listen to ‘All I want for Christmas is you’ by Mariah Carey and my whole family compete and we have a whole groupchat so my family all over the world can join ahah!
+
+❄️  Interviewer: avvieqs
+🎅  Interviewee: abbviys
+A: SOO every year for Christmas and new years my family does karaoke with our favourite songs, watches movies, fireworks, plays boardgames like monopoly and have this amazing roast dinner. It's not much but I enjoy it a lot and its my favourite time of the year!
+
+❄️  Interviewer: avvieqs
+🎅  Interviewee: lolcandy1457
+A: OK! So, a tradition my family and I have is that we always go full on out with Christmas decorations. We always hang our Christmas lights outside our house and decorate the tree all together. Lastly, I decorate gingerbread houses and make hot chocolate with my siblings. 🤍
+
+❄️  Interviewer: avvieqs
+🎅  Interviewee: choiisiiwon
+A: I would say staying up late after dinner to spend time together, open presents and caroling.
+
+❄️  Interviewer: avvieqs
+🎅  Interviewee: hclidays
+A: So around July, my family tends to make a huge huge dinner. Apparently it’s called the “July Feast” and my family from like Switzerland, Puerto Rico, and others places comes to my house, and we just feast and catch up with each other. The thing about the food is this it’s not from stores or anything.  It’s all homemade. It’s VERY delicious and if I could make it a thanksgiving part 2 I definitely would!
+
+❄️  Interviewer: avvieqs
+🎅  Interviewee: faiewes
+A: Well, I don't feel like it's too unique, but my cousins, brother and I have to lock ourselves up in the bathroom after dinner so that Santa can magically bring us our presents and put them under the Christmas tree.
+
+❄️  Interviewer: avvieqs
+🎅  Interviewee: snoopydesai
+A: We always travel to see our grandparents and it’s super fun!! I love seeing them and there is always LOADS of gifts. 
+
+~ Section by 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Christmas Pictionary](https://cdn.discordapp.com/attachments/1094801817881280592/1189387880196476949/ezgif-4-d297a8cafe.gif?ex=659dfac8&is=658b85c8&hm=c840651560cf1903c9aee3e4a695b67e077cbc4b89ee66d8614026a656578683&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+🎄 **Christmas Pictionary!** 🎄
+
+Happy holidays Teethyz community! We thought giving you all some Christmas Pictionary ideas would be fun! It's a super fun game to play with friends and family over the holiday season. The way it works, is you draw a picture from a certain prompt, which is attached below, and the other players need to guess what you're drawing!
+
+Have fun everyone, stay safe, and have an incredible holiday season!
+
+![Christmas Pictionary Sheet](https://cdn.discordapp.com/attachments/1094758945828114452/1189552347794387034/Green_White_Illustrative_Christmas_Greeting_Instagram_Post.png?ex=659e93f4&is=658c1ef4&hm=8205564768931f891fb9805d3090150e650e257baf31c917b392109870106c01&)
+
+~ Section by 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Short Christmas stories](https://cdn.discordapp.com/attachments/1094801817881280592/1189388730394484816/ezgif-4-7a22e426f0.gif?ex=659dfb93&is=658b8693&hm=5201530d057588f8a9059b969a47cdba5ca7afc0fb52afc0faf15df28924c225&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+☃ **Short Christmas stories**
+        ╰ by bvcrls and vaemmlaqx 
+
+Sadly, the holidays have come to an end but that doesn’t stop us from making some amazing MR+ themed Christmas stories! Enjoy reading 2 of our short Christmas stories! Let’s get into it.. 
+
+❅› Once, on a late Christmas night, a group of little Elf On The Shelf’s stole Santa's cookies. These mischievous little elves' names were Julia, Kennedy and Anna! They would always cause a ruckus on Christmas Eve, but this year they went ballistic. These three mischievous elves were going to take Santa's cookies! Even Santa knew they took it too far, but little did they know, Santa had a plan. Santa was going to put hot sauce in these new cookies. Well, not Santa himself but one of his helpers. So, Santa told Vivi to place the cookies and replace them. When Julia, Kennedy and Anna thought they’d get freshly baked, sweet, delicious cookies, they got hot sauce cookies. Boy oh boy did they flip! They hid from Santa and were never seen again...
+
+❅› Everybody knows Rudolph, but nobody knows the second most famous reindeer in the world: Ardil the Reindeer!
+Santa Claus did not know what to do with Ardil. He did not like to be outside. He was too clumsy for the toy workshop. And, he would also eat everything he cooked in the kitchen.
+At last, Santa realized that Ardil was always talking. Then, in a bright flash, he realized what Ardil could do. He could answer the phone! He was so happy that he finally had a purpose in the workshop. Everybody was constantly calling, and Ardil was the perfect pick for this role! Ardil became the happiest Reindeer in the world as he loved talking to friends, children or even Rudolph, on the phone.
+There’s always something that you are good at. It might take some time to figure out, though.
+
+~ Section by 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Traditions & Recipes From Around the World](https://cdn.discordapp.com/attachments/1094801817881280592/1189389173669511248/ezgif-4-8097338e1d.gif?ex=659dfbfc&is=658b86fc&hm=bbf164042244fad4c5747a406d44c8665ddc1c5eb5c282e3bccd4b87209d6f70&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+✰ ~ In different parts of the world, there are many amazing traditions and recipes out there. Do you want to make something that is yummy this dinner and know about some holiday traditions around the world? Well, I will blast you with some delicious recipes and holiday traditions in this section. 
+
+🇨🇴 **Columbia** 🇨🇴
+
+One tradition in Columbia is the Christmas lights. It begins on December 7th with the celebration of Día de las Velitas (Candlelight Day). The streets are filled with colorful lights and candles to make wishes. 
+
+A delicious Columbian dish you can make is the Ajiaco (Chicken and Potato Soup). The Ajiaco includes vegetables, spices, chicken, herbs, and served with capers and cream. 
+
+🇩🇪 **Germany** 🇩🇪
+
+This country is covered in colorful lights and decorations this time of month. There is a lot of warm foods and festive spirit in Germany. Many brands in Germany create calendars where numbered paper “doors” are opened to reveal a gift of a sweet, a treat, or a toy (advent calendars). There are many things included in advent calendars, and they’re really fun to open up and see what you’re gonna get for each day. 
+
+One yummy German recipe is the German Potato Pancakes (Reibekuchen). They are made with raw potatoes. You need to grate the potatoes and onion, add some more ingredients, and the fry it. You can either make them sweet or savory. 
+
+🇳🇴 **Norway** 🇳🇴
+
+Holiday traditions in Norway begin early on, typically the last weekend in November. Some things that they do are bake Christmas cookies, buy gifts, and going to a cheerful concert.
+
+A tasty recipe in Norway is Fårikål. It is a Norwegian Lamb & Cabbage Stew. You need to put cabbage and lamb and let it simmer for a few hours. People commonly eat it with potatoes. 
+
+~ Section by 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Guess the Song](https://cdn.discordapp.com/attachments/1094801817881280592/1189389708522967150/ezgif-4-69b4642328.gif?ex=659dfc7c&is=658b877c&hm=f3f9bfa5480efe36ca61e0d88fd8918c242bb4a0b7f33845cbd53d17b7c0effe&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+❄️・**Guess the lyric, Christmas + winter edition!**・🎄
+
+╭ ˚‧ Hey everyone! We hope you are enjoying the December newsletter so far. For this section, we asked a few MR+ to finish the lyrics of some of your favorite Christmas songs! We had a ton of fun working on this, and we encourage you to try this challenge yourself. Good luck!
+
+                                                      Interviewer: cinnohbun
+                                                       Interviewee: moonliiqts
+
+⛸️ - Lyric: Have yourself a merry little Christmas…
+❄️ Answer: Let your heart be light!
+
+🎄 - Lyric: Oh, the weather outside is frightful…
+☃️ -  Answer: But the fire is so delightful.
+
+                                                      Interviewer: cinnohbun
+                                                       Interviewee: stxrrships0
+
+❄️ - Lyric: Rockin' around the Christmas tree…
+🎄 - Answer: At the Christmas party hop.
+
+🌨️ - Lyric: Sleigh bells ring, are you listening?…
+⛸️ - Answer: In the lane, snow is glistening.
+
+                                                      Interviewer: vcorria
+                                                       Interviewee: Vickythevamp101
+
+☃️ - Lyric: Rudolph, the red-nosed reindeer, had??
+🌨️ - Answer: A very shiny nose.
+
+☃️ - Lyric: Last Christmas I gave..?
+⛸️ - Answer: I gave you my heart.
+
+                                                      Interviewer: vcorria
+                                                       Interviewee: steverygamer02
+
+☃️ - Lyric: You're a mean one???
+🌨️ - Answer: You're a mean one, Mr. Grinch!
+
+⛸️ - Lyric: All I want for Christmas...
+❄️ - Answer: All I want for Christmas is youuuu!
+
+🌨️ ✴ Section by: cinnohbun and vcorria. ·˚
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![New Years Resolutions/Plans for 2024](https://cdn.discordapp.com/attachments/1094801817881280592/1189390200397381712/ezgif-4-8cf9f102a1.gif?ex=659dfcf1&is=658b87f1&hm=9fbf59382cc4151e4ae5ea6e52e9af7001dfbbebd27aeb8e55aec0b7fc8c72c9&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+* As the year is coming to a close we took some time to interview 4 of our lovely MR+ here at Teethyz about their New Year’s resolutions. Take a look below!
+
+Interviewer: PerfectlyAnnie
+Interviewee: 1NDVIE 
+
+**Q1.** What are your New Year’s Resolutions / plans for 2024?
+
+A. My New Year’s resolution is to get good grades and be more productive. I would also like to attend school on time as I’m frequently late! Lastly, I would like to start working and take on a sport, maybe playing volleyball! 
+
+**Q2.** How do you plan on completing these?
+
+A. I plan on completing these by working harder and studying as well as paying attention in class and not falling asleep. As well, I need to start waking up earlier to be able to get to school on time every morning. Lastly, I will be looking around for good jobs and playing on my school's volleyball team.
+
+Interviewer: ashlvqh
+Interviewee: vcorria 
+
+**Q1.** What are your New Year’s Resolutions / plans for 2024? 
+
+A. One of my New Year Resolutions would have to beeeee, getting almost all the perfumes in Bath & Body works!
+
+**Q2.** How do you plan on completing these? 
+
+A. Saving a HUGE amount of money, they are very expensive!!
+
+Interviewer: PerfectlyAnnie
+Interviewee: chvrsvuh
+
+**Q1.** What are your New Year’s Resolutions / plans for 2024?
+
+A. I really want to focus on my organization and ability to manage/balance things easily, for example extracurricular activities along with school, and Teethyz of course. I would also like to keep up a positive mindset and last but not least.. stay gorgeous!!
+
+**Q2.** How do you plan on completing these?
+ 
+A. The only way I can complete these resolutions is by trying.
+
+Interviewer: ashlvqh
+Interviewee: iixtxshaxii 
+
+**Q1.** What are your New Year’s Resolutions / plans for 2024?
+
+A. My New Year’s resolutions this year I think will be to start eating healthier as I am a dancer, actress, singer and I do need to keep on top of that ahah!
+
+**Q2.** How do you plan on completing these?
+
+ A. I think I’ll just start buying less takeaways, maybe meal planning!
+
+~ Section by ashlvqh and PerfectlyAnnie.
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Christmas & Hannukkah Holiday](https://cdn.discordapp.com/attachments/1094801817881280592/1183897508498395247/ezgif.com-video-to-gif_5.gif?ex=659c7679&is=658a0179&hm=f012f06e47e71a3a279ebe442db460219a94552b568dea0648bba155594a575c&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+🎄 **Christmas & Hanukkah holiday** 🎄
+
+Christmas is behind us, so we can finally relax and be with family and loved ones. Here we have some special photos from the dentist. One collage represents Christmas, and the other collage represents Hanukkah! Even if some of you aren't celebrating either, we hope that these photos will warm your heart a bit. Don't forget to take a good look at the special outfits too!
+
+(Insert Photos later) 
+
+~ Section by 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Christmas Month-long Events ](https://cdn.discordapp.com/attachments/1094801817881280592/1183896563731411156/ezgif.com-video-to-gif_4.gif?ex=659c7598&is=658a0098&hm=6b169a7bb2b46b969f60738faf5f68ae1a670d786b629805baf41b1312a9eb48&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+🎄 Christmas Monthlong Events
+         ╰ Section made by vaemmlaqx and zeiqios
+
+ Teethyz Dentist's month-long events promise a festive December! Overall, our amazing and creative departments have come up with some amazing and fun events to make December 2023 memorable. Let’s look over all the events hosted and bring back some of your memories!
+
+⭒ **WEEK 1**
+Week 1 started off with a cozy Christmas movie night on December 2nd, hosted by Krissy. They watched the amazing movie "Grinch". After Krissy had successfully hosted the first Christmas event, it was shortly followed by a fun "Guess The Christmas Song" event on the 3rd, hosted by McKenzie. Congratulations to Buth123e and yeeckly on winning that event. 
+As the week progressed, Mais hosted a fun Christmas Baking Contest on the 9th. Congratulations to our winners, Elsaisdute, who received 1st place, taylorswiftstan498, who placed 2nd, and Maggie_ch8, who placed 3rd.
+After this already exciting week, Emily posted an amazing Christmas word search on the 10th. The 3 winners, engervinfan, DiorsHeidi and veronella finished the word search the fastest. 
+
+⭒ **WEEK 2**
+Moving onto Week 2, Witty hosted a creative "Best Gingerbread House" competition on December 14th. Be sure to congratulate the 3 winners, clvsure, lilviapup and Hqil3yy on creating the best gingerbread houses! This amazing competition was followed by a "Holly Jolly Christmas Crossword" on the 18th, hosted by Emily. sxnnzyx, DiorsHeidi and Buth123e completed the crossword the fastest.
+  
+⭒ **WEEK 3**
+Week 3 brought more holiday cheer with "Grinch Vs. Elves" festivities on December 19th, hosted by the only and amazing Chrissy! Thank you for attending! 
+On the 22nd, Emily hosted a sleepover event at the dentist. Then the next day, guess who visited the dentist? Santa joined, spreading joy and laughter to all event attendees! Thank you to Krissy for hosting, and to everyone who helped make this event possible. We hope that everyone enjoyed the events hosted throughout this week.
+
+⭒ **WEEK 4**
+The last week of our Christmas Event Season let us end the year with a blast! An awesome New Year's Party occurred at the Dentist on December 30th! We hope that you enjoyed the party if you were in attendance. Happy New Year!
+
+The year finished so quickly. It feels as if yesterday was Easter! We hope you enjoyed our events over the month and had an amazing December. Now, let’s move over to our next section!
+
