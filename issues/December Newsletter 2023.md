@@ -258,7 +258,7 @@ The year finished so quickly. It feels as if yesterday was Easter! We hope you e
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![MR/HR & Alliance OTM ](https://cdn.discordapp.com/attachments/1094801817881280592/1191090117293645989/mr_hr_alliance_otm_banner.gif?ex=65a42c1d&is=6591b71d&hm=395e13129e09033bf8b15bbda2d1b8a999b1fb2a7f1bfed2d02b23339f72e6d5&)
+![MR/HR & Alliance OTM ](https://cdn.discordapp.com/attachments/1094801817881280592/1191096303577477130/ezgif-4-d72034108a.gif?ex=65a431e0&is=6591bce0&hm=5d680de4c4d8b3301993611fbed0e966caa80b1ae4e3ba2ebf51ccfa49621ece&)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -464,6 +464,32 @@ A) Finding the presents because it did have a reward of you getting a badge and 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![End of the Year]()
+![End of the Year](https://cdn.discordapp.com/attachments/1094801817881280592/1183895893611647026/ezgif.com-video-to-gif_3.gif?ex=659c74f8&is=6589fff8&hm=9aaadd052e93b01c1b496b4d4e91b12dad362b5e83da61419d7120f775ef7172&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+2023 memories
+
+◉ 2023 was an amazing year for Teethyz! There are many unforgettable moments that the MR/HR team cant wait to show you. We hope you enjoy these collages as much as we do, and you can maybe find yourself in one. Anyway, lets take a look at some of the top 2023 memorable photos!
+
+◉ Shift photos
+Here, we have the pictures of our most memorable shifts of 2023! We are most grateful that you spend time at the dentist to work and claim appointments!
+
+
+◉ Training photos
+Ho ho ho! Is that... Santa? Oh wait, they are training photos! Lets have a look at our wonderful training photos of 2023!
+Training collage
+
+◉ Funny photos
+Mmm, is that... Some funny pictures? Oh yes, its timeeeee! Take a look at a recap of the funny memories of 2023!
+Funny collage
+
+◉ Alliance photos
+Did someone say alliance photos? I think, yes. Here are some photos of our lovely alliances of 2023! 
+Alliance collage
+
+That was a lot of memories, right? But thats all from us! We hope that looking at this year’s many collages cheered you up!
+
+~ Section by Photography team
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
