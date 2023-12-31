@@ -499,6 +499,24 @@ That was a lot of memories, right? But thats all from us! We hope that looking a
 
 ~ Section by Photography team
 
-▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+► Thank you for reading our November Newsletter! See you next month.
 
+~ ♚ Credits! ♚ ~
+
+Lead Newsletter Board: XxCandy2372xX
+
+Newsletter Board: PerfectlyAnnie, missel_k2, RBLXWithEmily, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: bearfuhl, michallol7, Avocado4Life301, swocieties
+
+Section Authors: mariesluvqs, havivq, Furnface, ashlvqh, vcorria, steveygamer2, bvcrls, cinnohbun, mvthoIogy,  
+
+Photographers: Mrs_KawaiiCat,zeiqios, Didi_ek, Vinnielittle14
+
+Social Assistants: avvIeqs, Blueqxia, e2milys, islafq, JasJolly, shiny_laccy, vaemmlaqx, EleqantEmma
+
+Editors: dietvivi, TailaBzp, Cas6nx, iaylaaz, kkennedys
