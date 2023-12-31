@@ -1,1 +1,1 @@
-
+![Newsletter Banner](https://cdn.discordapp.com/attachments/1094801817881280592/1187837054646767616/banner.png?ex=65a190f6&is=658f1bf6&hm=5c8f97ae35e6f380be07399ffdf1f37981cbf47ac8569427703da7db82da488b&)
