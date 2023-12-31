@@ -258,40 +258,82 @@ The year finished so quickly. It feels as if yesterday was Easter! We hope you e
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![MR/HR & Alliance OTM ](https://cdn.discordapp.com/attachments/1094801817881280592/1183891824444715068/ezgif.com-video-to-gif.gif?ex=659c712e&is=6589fc2e&hm=17bdbb0ba189f3cc017b0ad57bfd65a5e9c65a7086de0775b6b9e2388a916fcd&)
+![MR/HR & Alliance OTM ](https://cdn.discordapp.com/attachments/1094801817881280592/1191090117293645989/mr_hr_alliance_otm_banner.gif?ex=65a42c1d&is=6591b71d&hm=395e13129e09033bf8b15bbda2d1b8a999b1fb2a7f1bfed2d02b23339f72e6d5&)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-Greeting once again Teethyz, and welcome back to our Of The Month section! In this section you will find out about our Alliance of the month, our MR of the month, and our HR of the month! Let's start with our MR of the month!
+✎⫸`Greeting once again Teethyz, and welcome back to our Of The Month section! In this section you will find out about our Alliance of the month, our MR of the month, and our HR of the month! Let's start with our MR of the month!
 
-Our MR Of The Month was… **Mrs_KawaiiCat (Mahdia)**!  We are all very proud of her for winning such a highly esteemed award! I was able to get an exclusive interview with Mahdia as a part of this, so read and enjoy!
+❑ Our MR Of The Month was… **Mrs_KawaiiCat (Mahdia)**!  We are all very proud of her for winning such a highly esteemed award! I was able to get an exclusive interview with Mahdia as a part of this, so read and enjoy!
 
-Interviewer: Furnface
-Interviewee: Mrs_KawaiiCat (Mahdia)
+**Interviewer: Furnface
+Interviewee: Mrs_KawaiiCat (Mahdia)**
 
-Q(Furnface) What was your reaction to getting MR of the month?
+Q(Furnface) | What was your reaction to getting MR of the month?
+
  A(Mahdia)I was very surprised! I woke up when I found out I got pinged lots of times. I checked all of them and realised that both me and Mckenzie got it, I was super glad about it!
-Q(Furnface) What’s some advice you would give to LR’s trying to be an MR one day.
+ 
+Q(Furnface) | What’s some advice you would give to LR’s trying to be an MR one day.
+
  A(Mahdia) Motivation is the key to success! When I first joined, I played around once a week and then lots of people motivated me! Never push yourself too far, but still try to work hard, and try to show your dedication towards Teethyz.
-Q(Furnface) What’s some advice you would give to MR’s trying to one day get MR of the month.
+ 
+Q(Furnface) | What’s some advice you would give to MR’s trying to one day get MR of the month.
+
  A(Mahdia) Quality over quantity. Help to those around you and try to answer questions when they're asked! Showing that you care about Teethyz can make a big difference!
-Some great words from Mahdia and we congratulate her on the amazing achievements and getting MR of the month! Now for our HR of the month segment! Our HR for the month of December was… mckcnzies (Kenzie) Congratulations to Kenzie on getting this amazing achievement! As a part of this, I got an exclusive interview with Kenzie!
-Interviewer: Furnace
-Interviewee: mckcnzies (Kenzie)
+ 
+❑ Some great words from Mahdia and we congratulate her on the amazing achievements and getting MR of the month! Now for our HR of the month segment! Our HR for the month of December was… **mckcnzies (Kenzie)** Congratulations to Kenzie on getting this amazing achievement! As a part of this, I got an exclusive interview with Kenzie!
 
-Q(Furnface) What was your reaction to getting HR of the month?
+**Interviewer: Furnace
+Interviewee: mckcnzies (Kenzie)**
+
+Q(Furnface) | What was your reaction to getting HR of the month?
+
 A(Kenzie) i was really shocked and happy!
-Q(Furnface) What’s some advice you would give to LR’s trying to be an HR one day.
-A(Kenzie) some advice id give to lrs trying to be an hr one day would probably be patience and always striving to be the best version of yourself. i think its also important not to get yourself too wound up on it and just put in the work for what you want
-Q(Furnface) What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
-A(Kenzie) go an extra step than you usually do dont just do the bare minimum and expect something
-Some great words from Kenzie and we are all very proud of her momentous achievement as earning an award like HR of the month is no easy task! Now our next section is our alliance of the month! This is a section where our team hand picks an alliance then we think is professional, kind, and respectful! For this months alliance of the month it is… Bambou! Congratulations Bambou! Here is Ali with one of the PR representatives of Bambou.
-Interviewer: Steveygamer2 (Ali)
-Interviewee: waitintherain
 
-Q (steveygamer2) What has working with Teethyz been like from an affiliate perspective?
+Q(Furnface) | What’s some advice you would give to LR’s trying to be an HR one day.
+
+A(Kenzie) some advice id give to lrs trying to be an hr one day would probably be patience and always striving to be the best version of yourself. i think its also important not to get yourself too wound up on it and just put in the work for what you want
+
+Q(Furnface) | What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
+
+A(Kenzie) go an extra step than you usually do dont just do the bare minimum and expect something
+
+❑ Some great words from Kenzie and we are all very proud of her momentous achievement as earning an award like HR of the month is no easy task! Now our next section is our alliance of the month! This is a section where our team hand picks an alliance then we think is professional, kind, and respectful! For this months alliance of the month it is… Bambou! Congratulations Bambou! Here is Ali with one of the PR representatives of **Bambou**.
+
+**Interviewer: Steveygamer2 (Ali)
+Interviewee: waitintherain**
+
+Q (steveygamer2) | What has working with Teethyz been like from an affiliate perspective?
+
 A (waitintherain) Teethyz has been a supportive alliance towards Bambou and we have been able to support each other through each group’s activity.
-Q (steveygamer2) What's something you've enjoyed whilst being affiliated with Teethyz?
+
+Q (steveygamer2) | What's something you've enjoyed whilst being affiliated with Teethyz?
+
 A(waitintherain) Bambou has really enjoyed the affiliate visits that have been conducted during the time of our partnership.
-Q (steveygamer2) Can you share one memorable factor of Teethyz Dentist that stands out to you?
+
+Q (steveygamer2) | Can you share one memorable factor of Teethyz Dentist that stands out to you?
+
 A (waitintherain) Teethyz’s notable trait of being a dentist group really stands out to us, as it is one of the only ones in the industry.
+
+~ Section by 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![TikTok](https://cdn.discordapp.com/attachments/1094801817881280592/1183894662424047777/ezgif.com-video-to-gif_1.gif?ex=659c73d3&is=6589fed3&hm=0bef6fba983458798c8b5804aac69231e415b93f6583add28a828ed63a770da7&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Ello ello! One of our social assistants, EleqantEmma, has created **TWO** tiktoks for the month of December! Two is better than one right? Make sure to check them out on our official tiktok page. (Also follow too!) 
+
+(Insert Tiktok 1 here)
+
+(Insert TikTok 2 here) 
+
+~ Section by 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Birthdays](https://cdn.discordapp.com/attachments/1094801817881280592/1183895324855644160/ezgif.com-video-to-gif_2.gif?ex=659c7471&is=6589ff71&hm=b23ddc4ff8a90642082bed98c0098903b5d6a087a9a6f19f06bc7db6069ac6b5&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
