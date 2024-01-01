@@ -171,6 +171,7 @@ A tasty recipe in Norway is Fårikål. It is a Norwegian Lamb & Cabbage Stew. Yo
 
 * As the year is coming to a close we took some time to interview 4 of our lovely MR+ here at Teethyz about their New Year’s resolutions. Take a look below!
 
+
 Interviewer: PerfectlyAnnie
 Interviewee: 1NDVIE 
 -
