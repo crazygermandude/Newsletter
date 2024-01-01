@@ -16,49 +16,49 @@ We hope you give this a read!
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: iixtashaxii 
-︽︽︽
+
 
 A: So basically! My family does this thing called the ‘Mariah Showdown’ where you can’t listen to ‘All I want for Christmas is you’ by Mariah Carey and my whole family compete and we have a whole groupchat so my family all over the world can join ahah!
 
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: abbviys
-︽︽︽
+
 
 A: SOO every year for Christmas and new years my family does karaoke with our favourite songs, watches movies, fireworks, plays boardgames like monopoly and have this amazing roast dinner. It's not much but I enjoy it a lot and its my favourite time of the year!
 
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: lolcandy1457
-︽︽︽
+
 
 A: OK! So, a tradition my family and I have is that we always go full on out with Christmas decorations. We always hang our Christmas lights outside our house and decorate the tree all together. Lastly, I decorate gingerbread houses and make hot chocolate with my siblings. 🤍
 
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: choiisiiwon
-︽︽︽
+
 
 A: I would say staying up late after dinner to spend time together, open presents and caroling.
 
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: hclidays
-︽︽︽
+
 
 A: So around July, my family tends to make a huge huge dinner. Apparently it’s called the “July Feast” and my family from like Switzerland, Puerto Rico, and others places comes to my house, and we just feast and catch up with each other. The thing about the food is this it’s not from stores or anything.  It’s all homemade. It’s VERY delicious and if I could make it a thanksgiving part 2 I definitely would!
 
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: faiewes
-︽︽︽
+
 
 A: Well, I don't feel like it's too unique, but my cousins, brother and I have to lock ourselves up in the bathroom after dinner so that Santa can magically bring us our presents and put them under the Christmas tree.
 
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: snoopydesai
-︽︽︽
+
 
 A: We always travel to see our grandparents and it’s super fun!! I love seeing them and there is always LOADS of gifts. 
 
@@ -187,8 +187,9 @@ A tasty recipe in Norway is Fårikål. It is a Norwegian Lamb & Cabbage Stew. Yo
 
 
 Interviewer: PerfectlyAnnie
+
 Interviewee: 1NDVIE 
-︽︽︽
+
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
@@ -199,8 +200,9 @@ A. My New Year’s resolution is to get good grades and be more productive. I wo
 A. I plan on completing these by working harder and studying as well as paying attention in class and not falling asleep. As well, I need to start waking up earlier to be able to get to school on time every morning. Lastly, I will be looking around for good jobs and playing on my school's volleyball team.
 
 Interviewer: ashlvqh
+
 Interviewee: vcorria 
-︽︽︽
+
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024? 
 
@@ -211,8 +213,9 @@ A. One of my New Year Resolutions would have to beeeee, getting almost all the p
 A. Saving a HUGE amount of money, they are very expensive!!
 
 Interviewer: PerfectlyAnnie
+
 Interviewee: chvrsvuh
-︽︽︽
+
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
@@ -223,8 +226,9 @@ A. I really want to focus on my organization and ability to manage/balance thing
 A. The only way I can complete these resolutions is by trying.
 
 Interviewer: ashlvqh
+
 Interviewee: iixtxshaxii 
-︽︽︽︽
+
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
