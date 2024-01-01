@@ -173,6 +173,7 @@ A tasty recipe in Norway is Fårikål. It is a Norwegian Lamb & Cabbage Stew. Yo
 
 Interviewer: PerfectlyAnnie
 Interviewee: 1NDVIE 
+-
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
@@ -184,6 +185,7 @@ A. I plan on completing these by working harder and studying as well as paying a
 
 Interviewer: ashlvqh
 Interviewee: vcorria 
+-
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024? 
 
@@ -195,6 +197,7 @@ A. Saving a HUGE amount of money, they are very expensive!!
 
 Interviewer: PerfectlyAnnie
 Interviewee: chvrsvuh
+-
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
@@ -206,6 +209,7 @@ A. The only way I can complete these resolutions is by trying.
 
 Interviewer: ashlvqh
 Interviewee: iixtxshaxii 
+-
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
@@ -214,6 +218,7 @@ A. My New Year’s resolutions this year I think will be to start eating healthi
 **Q2.** How do you plan on completing these?
 
  A. I think I’ll just start buying less takeaways, maybe meal planning!
+ 
 
 ~ Section by ashlvqh and PerfectlyAnnie.
 
