@@ -311,7 +311,7 @@ The year finished so quickly. It feels as if yesterday was Easter! We hope you e
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![MR/HR & Alliance OTM ](https://cdn.discordapp.com/attachments/1094801817881280592/1191096303577477130/ezgif-4-d72034108a.gif?ex=65a431e0&is=6591bce0&hm=5d680de4c4d8b3301993611fbed0e966caa80b1ae4e3ba2ebf51ccfa49621ece&)
+![MR/HR & Alliance OTM ](https://cdn.discordapp.com/attachments/1094801817881280592/1191103470938370088/MRHR__Alliance_OTM_1.gif?ex=65a4388d&is=6591c38d&hm=3476855f5430a622a04b809500e10ca6bf4cca810051eb49d34a4610f0a9d4bc&)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
