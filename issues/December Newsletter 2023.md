@@ -384,7 +384,7 @@ A (waitintherain) Teethyz’s notable trait of being a dentist group really stan
 
 Ello ello! One of our social assistants, EleqantEmma, has created **TWO** tiktoks for the month of December! Two is better than one right? Make sure to check them out on our official tiktok page. (Also follow too!) 
 
-	[December Newsletter TikTok1](https://www.example.com)
+	[December Newsletter TikTok1](https://www.tiktok.com/@teethyz.official/video/7319218905950489886?lang=en)
 
 	(Another one will be posted later today!) 
 
