@@ -18,7 +18,10 @@ We hope you give this a read!
 🎅  Interviewee: iixtashaxii 
 
 
+
 A: So basically! My family does this thing called the ‘Mariah Showdown’ where you can’t listen to ‘All I want for Christmas is you’ by Mariah Carey and my whole family compete and we have a whole groupchat so my family all over the world can join ahah!
+
+︽︽︽
 
 ❄️  Interviewer: avvieqs
 
@@ -27,12 +30,16 @@ A: So basically! My family does this thing called the ‘Mariah Showdown’ wher
 
 A: SOO every year for Christmas and new years my family does karaoke with our favourite songs, watches movies, fireworks, plays boardgames like monopoly and have this amazing roast dinner. It's not much but I enjoy it a lot and its my favourite time of the year!
 
+︽︽︽
+
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: lolcandy1457
 
 
 A: OK! So, a tradition my family and I have is that we always go full on out with Christmas decorations. We always hang our Christmas lights outside our house and decorate the tree all together. Lastly, I decorate gingerbread houses and make hot chocolate with my siblings. 🤍
+
+︽︽︽
 
 ❄️  Interviewer: avvieqs
 
@@ -41,12 +48,16 @@ A: OK! So, a tradition my family and I have is that we always go full on out wit
 
 A: I would say staying up late after dinner to spend time together, open presents and caroling.
 
+︽︽︽
+
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: hclidays
 
 
 A: So around July, my family tends to make a huge huge dinner. Apparently it’s called the “July Feast” and my family from like Switzerland, Puerto Rico, and others places comes to my house, and we just feast and catch up with each other. The thing about the food is this it’s not from stores or anything.  It’s all homemade. It’s VERY delicious and if I could make it a thanksgiving part 2 I definitely would!
+
+︽︽︽
 
 ❄️  Interviewer: avvieqs
 
@@ -55,12 +66,15 @@ A: So around July, my family tends to make a huge huge dinner. Apparently it’s
 
 A: Well, I don't feel like it's too unique, but my cousins, brother and I have to lock ourselves up in the bathroom after dinner so that Santa can magically bring us our presents and put them under the Christmas tree.
 
+︽︽︽
+
 ❄️  Interviewer: avvieqs
 
 🎅  Interviewee: snoopydesai
 
 
 A: We always travel to see our grandparents and it’s super fun!! I love seeing them and there is always LOADS of gifts. 
+
 
 ~ Section by avvIeqs & zeiqios
 
