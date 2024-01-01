@@ -454,7 +454,7 @@ Graphics: bearfuhl, michallol7, Avocado4Life301, swocieties
 
 Section Authors: mariesluvqs, havivq, Furnface, ashlvqh, vcorria, steveygamer2, bvcrls, cinnohbun, mvthoIogy,  
 
-Photographers: Mrs_KawaiiCat,zeiqios, Didi_ek, Vinnielittle14
+Photographers: Mrs_KawaiiCat, zeiqios, Didi_ek, Vinnielittle14, NewSwitcherop
 
 Social Assistants: avvIeqs, Blueqxia, e2milys, islafq, JasJolly, shiny_laccy, vaemmlaqx, EleqantEmma
 
