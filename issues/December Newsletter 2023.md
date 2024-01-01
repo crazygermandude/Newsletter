@@ -213,6 +213,8 @@ A. My New Year’s resolution is to get good grades and be more productive. I wo
 
 A. I plan on completing these by working harder and studying as well as paying attention in class and not falling asleep. As well, I need to start waking up earlier to be able to get to school on time every morning. Lastly, I will be looking around for good jobs and playing on my school's volleyball team.
 
+︽︽︽
+
 Interviewer: ashlvqh
 
 Interviewee: vcorria 
@@ -226,6 +228,8 @@ A. One of my New Year Resolutions would have to beeeee, getting almost all the p
 
 A. Saving a HUGE amount of money, they are very expensive!!
 
+︽︽︽
+
 Interviewer: PerfectlyAnnie
 
 Interviewee: chvrsvuh
@@ -238,6 +242,8 @@ A. I really want to focus on my organization and ability to manage/balance thing
 **Q2.** How do you plan on completing these?
  
 A. The only way I can complete these resolutions is by trying.
+
+︽︽︽
 
 Interviewer: ashlvqh
 
@@ -311,6 +317,8 @@ The year finished so quickly. It feels as if yesterday was Easter! We hope you e
 
 ✎⫸`Greeting once again Teethyz, and welcome back to our Of The Month section! In this section you will find out about our Alliance of the month, our MR of the month, and our HR of the month! Let's start with our MR of the month!
 
+
+
 ❑ Our MR Of The Month was… **Mrs_KawaiiCat (Mahdia)**!  We are all very proud of her for winning such a highly esteemed award! I was able to get an exclusive interview with Mahdia as a part of this, so read and enjoy!
 
 **Interviewer: Furnface
@@ -327,6 +335,8 @@ Q(Furnface) | What’s some advice you would give to LR’s trying to be an MR o
 Q(Furnface) | What’s some advice you would give to MR’s trying to one day get MR of the month.
 
  A(Mahdia) Quality over quantity. Help to those around you and try to answer questions when they're asked! Showing that you care about Teethyz can make a big difference!
+
+ ︽︽︽
  
 ❑ Some great words from Mahdia and we congratulate her on the amazing achievements and getting MR of the month! Now for our HR of the month segment! Our HR for the month of December was… **mckcnzies (Kenzie)** Congratulations to Kenzie on getting this amazing achievement! As a part of this, I got an exclusive interview with Kenzie!
 
@@ -344,6 +354,8 @@ A(Kenzie) some advice id give to lrs trying to be an hr one day would probably b
 Q(Furnface) | What’s some advice you would give to MR’s or even HR’s trying to one day get MR or HR of the month.
 
 A(Kenzie) go an extra step than you usually do dont just do the bare minimum and expect something
+
+︽︽︽
 
 ❑ Some great words from Kenzie and we are all very proud of her momentous achievement as earning an award like HR of the month is no easy task! Now our next section is our alliance of the month! This is a section where our team hand picks an alliance then we think is professional, kind, and respectful! For this months alliance of the month it is… Bambou! Congratulations Bambou! Here is Ali with one of the PR representatives of **Bambou**.
 
