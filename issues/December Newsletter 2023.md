@@ -15,37 +15,37 @@ We hope you give this a read!
 
 ❄️  Interviewer: avvieqs
 🎅  Interviewee: iixtashaxii 
----
+︽︽︽
 A: So basically! My family does this thing called the ‘Mariah Showdown’ where you can’t listen to ‘All I want for Christmas is you’ by Mariah Carey and my whole family compete and we have a whole groupchat so my family all over the world can join ahah!
 
 ❄️  Interviewer: avvieqs
 🎅  Interviewee: abbviys
----
+︽︽︽
 A: SOO every year for Christmas and new years my family does karaoke with our favourite songs, watches movies, fireworks, plays boardgames like monopoly and have this amazing roast dinner. It's not much but I enjoy it a lot and its my favourite time of the year!
 
 ❄️  Interviewer: avvieqs
 🎅  Interviewee: lolcandy1457
----
+︽︽︽
 A: OK! So, a tradition my family and I have is that we always go full on out with Christmas decorations. We always hang our Christmas lights outside our house and decorate the tree all together. Lastly, I decorate gingerbread houses and make hot chocolate with my siblings. 🤍
 
 ❄️  Interviewer: avvieqs
 🎅  Interviewee: choiisiiwon
----
+︽︽︽
 A: I would say staying up late after dinner to spend time together, open presents and caroling.
 
 ❄️  Interviewer: avvieqs
 🎅  Interviewee: hclidays
----
+︽︽︽
 A: So around July, my family tends to make a huge huge dinner. Apparently it’s called the “July Feast” and my family from like Switzerland, Puerto Rico, and others places comes to my house, and we just feast and catch up with each other. The thing about the food is this it’s not from stores or anything.  It’s all homemade. It’s VERY delicious and if I could make it a thanksgiving part 2 I definitely would!
 
 ❄️  Interviewer: avvieqs
 🎅  Interviewee: faiewes
----
+︽︽︽
 A: Well, I don't feel like it's too unique, but my cousins, brother and I have to lock ourselves up in the bathroom after dinner so that Santa can magically bring us our presents and put them under the Christmas tree.
 
 ❄️  Interviewer: avvieqs
 🎅  Interviewee: snoopydesai
----
+︽︽︽
 A: We always travel to see our grandparents and it’s super fun!! I love seeing them and there is always LOADS of gifts. 
 
 ~ Section by avvIeqs & zeiqios
@@ -174,7 +174,7 @@ A tasty recipe in Norway is Fårikål. It is a Norwegian Lamb & Cabbage Stew. Yo
 
 Interviewer: PerfectlyAnnie
 Interviewee: 1NDVIE 
--
+︽︽︽
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
@@ -186,7 +186,7 @@ A. I plan on completing these by working harder and studying as well as paying a
 
 Interviewer: ashlvqh
 Interviewee: vcorria 
--
+︽︽︽
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024? 
 
@@ -198,7 +198,7 @@ A. Saving a HUGE amount of money, they are very expensive!!
 
 Interviewer: PerfectlyAnnie
 Interviewee: chvrsvuh
--
+︽︽︽
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
@@ -210,7 +210,7 @@ A. The only way I can complete these resolutions is by trying.
 
 Interviewer: ashlvqh
 Interviewee: iixtxshaxii 
--
+︽︽︽︽
 
 **Q1.** What are your New Year’s Resolutions / plans for 2024?
 
@@ -340,9 +340,9 @@ A (waitintherain) Teethyz’s notable trait of being a dentist group really stan
 
 Ello ello! One of our social assistants, EleqantEmma, has created **TWO** tiktoks for the month of December! Two is better than one right? Make sure to check them out on our official tiktok page. (Also follow too!) 
 
-(Insert Tiktok 1 here)
+	[December Newsletter TikTok1](https://www.example.com)
 
-(Insert TikTok 2 here) 
+	(Another one will be posted later today!) 
 
 ~ Section by EleqantEmma
 
@@ -354,7 +354,9 @@ Ello ello! One of our social assistants, EleqantEmma, has created **TWO** tiktok
 
 There was many birthdays to be celebrated this December. While we may not be able to commemorate all of the birthdays this month, here are some of the MRs who had birthdays this month! We asked them 3 questions each to get to know them better. Here are their answers!
 
-![Birthdays sheet](https://media.discordapp.net/attachments/1094801817881280592/1191286763763806318/image.png?ex=65a4e341&is=65926e41&hm=44da237f43f82f271f110e98fd923dd72592498b4a92ec49ba9fe0f1f1b282dd&=&format=webp&quality=lossless&width=1868&height=1050)
+![Birthdays sheet](https://media.discordapp.net/attachments/1094801817881280592/1191462305498665030/image.png?ex=65a586bd&is=659311bd&hm=0baa29e59694c205fe623217c8b0170c8196631e2aa10bb1900e6630837e36d5&=&format=webp&quality=lossless&width=1868&height=1050)
+
+![Birthdays sheet2](https://media.discordapp.net/attachments/1094801817881280592/1191462305116979320/image.png?ex=65a586bd&is=659311bd&hm=3c048cab62bd8bfa80ba2dcca96d78fb383d346c0edcff6f2f35b270a6f98cba&=&format=webp&quality=lossless&width=1868&height=1050)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
