@@ -143,3 +143,47 @@ We loved the entrance of 2024! We still have 11 more magnificent months to creat
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+**Study Tips!**
+         ⤷ By Ali (steveygamer2) and Diana (Didi_ek)
+
+We know most of you returned from winter break earlier this month, which is why we thought it'd be a good idea to compile a list of study tips to help you improve academically! Studying can be a hassle, but these tips can help you reach your full academic potential and help you lessen stressful or overwhelming feelings that come from studying! 
+
+📕 1 ⋆ Find a study method that works for you
+There are various study methods out there; Experiment with them! Find out which ones work for you and help you study more effectively. Some methods work better for some people than others. It depends on the person and their ideal work style.
+
+📘 2 ⋆ Study schedules and organization
+Design a study schedule! This will help you stay organized and more prepared when it studying, and it can help you avoid feeling overwhelmed. 
+
+📗 3 ⋆ To do lists
+Design a to-do list, beginning with a small amount of tasks on it. As you complete them, add more until you've completed them all. This will motivate you to accomplish all of your tasks, especially if you make it a cute list! 
+
+📙 4 ⋆ Quiz yourself
+Studying isn't just re-reading your materials. Try to come up with practice questions regarding what you've learned and ask yourself them. A website that I've found to be helpful is Quizlet. It allows you to create your own study set to help you study. Feel free to check it out!
+
+📗 5 ⋆ Ask questions
+Look, we all know teachers can be intimidating at times, but they are there to help you! If you're experiencing confusion regarding what you're learning, ask your teachers to help you. If you're too nervous to raise your hand in class, write yourself a note reminding yourself to ask your questions afterward!
+📘 6 ⋆ How to stay motivated
+Writing pretty notes is the key. This way you will study better when you have everything nice and colorful. Buy some cute notebooks and pens too! This will keep you motivated.
+
+📕 7 ⋆ Studying for exams
+Remember that you should never study for more than 2 hours without a break. Also, don't put it off until the day before the exam. It's better to study content a few days before it and spend the day before the exam practicing to make sure you know it well. You can read it a few times at school during breaks too!
+
+📘 8 ⋆ Quiet study place
+Definitely don't study somewhere in the kitchen where your family will be walking around and distracting you. Find a quiet place and put your phone on silent. If something is still bothering you at home, you can study in libraries. It's usually quiet and you'll be able to concentrate!
+
+📗 9 ⋆ Reward yourself
+Rewarding yourself is important. After you finish studying, you can watch your favorite TV show, eat whatever you like, go to a coffee shop, spend some time with friends, etc.
+
+📙 10 ⋆ Homework
+Do your homework the day you get it assigned. That way, you won't have to stress about it for the next few days.
+
+We hope that these will be useful to all of you who are reading this. Best of luck!
+
+~ Section by 
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![MOTM/HOTM/AOTM](https://cdn.discordapp.com/attachments/1094801817881280592/1199864215326953583/IMG_6362.gif?ex=65c417a1&is=65b1a2a1&hm=a8d4a7a6f030d5a6c8d9d0fd04b6e402d3846563ce01091b43e20f9e2f1869ba&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
