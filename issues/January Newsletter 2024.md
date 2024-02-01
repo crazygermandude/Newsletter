@@ -200,6 +200,8 @@ Greetings, Teethyz! We are thrilled to present the MR/HR/Alliance OTM  section f
 > January's MROTM was **iiNotNia**! Her contributions to Teethyz are very appreciated, as well as her constant hard work and efforts. Here are some of her responses to the interview questions: 
 
 Interviewer: mariesluvqs
+
+
 Interviewee: iiNotNia
 
 『1. What was your reaction after finding out you were selected for MROTM? 
@@ -214,9 +216,13 @@ A. Not to give up and keep going. Also not to over work yourself.』
 
 A. Believe in yourself, help others around you and do more than you normally do.』
 
+--
+
 > Next, here is the interview with our HROTM, **iixtxshaxii**! She's extremely dedicated to the group and helps improve Teethyz in so many ways. Here are her reponses: 
 
 Interviewer: mariesluvqs
+
+
 Interviewee: iixtxshaxii
 
 『1. What was your reaction after finding out you were selected for HROTM?
@@ -231,9 +237,13 @@ A. Just keep trying. I know it’s hard sometimes but it will all be worth it. A
 
 A. To be completely honest, I think staying active but not burning yourself out is the main thing. Also a main thing, I tried to balance in game and discord activeness! Not just one or the other.』
 
+--
+
 > Lastly, we were able to get an interview with one of the Public Relations officers at our alliance of the month... **Coast**! We're very grateful to be affiliated with this establishment, so here are their answers:
 
 Interviewer: mariesluvqs
+
+
 Interviewee: arvtiql
 
 『1. What is something you enjoy about being affiliated with Teethyz?
