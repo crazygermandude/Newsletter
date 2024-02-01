@@ -284,7 +284,7 @@ That's all for this month's section of MR/HR/Alliance OTM! Congratulations to al
 • Sometimes some MRs wish that they could express their opinions freely towards trollers, but they always make sure to hold back and act professionally. Our Social Assistants have therefore decided to make a Tiktok about this! Make sure to check out our page. :))
 !
 
-(Insert Link later)
+[January TikTok](https://www.tiktok.com/@teethyz.official/video/7330688094020160798?lang=en)
 
 ~Section by Blueqxia & vcorria
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
