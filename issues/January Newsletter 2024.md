@@ -281,5 +281,16 @@ That's all for this month's section of MR/HR/Alliance OTM! Congratulations to al
 
 Over the month January we obviously had some amazing MR+ birthdays come up, let’s get a quick rewind of most of them!
 
-(Insert Link Later) 
+![Birthday Sheet 1](https://media.discordapp.net/attachments/1094801817881280592/1202663267483262976/image.png?ex=65ce4673&is=65bbd173&hm=aecd0beed42d23b61eaba60f78d20c0aa1b02aae5ad8daf23e333d349a72efc6&=&format=webp&quality=lossless&width=1866&height=1050)
+
+![Birthday Diste](https://media.discordapp.net/attachments/1094801817881280592/1202664097313849444/image.png?ex=65ce4739&is=65bbd239&hm=5e5f0dd1e12598fabf2c6cf2efcbcf1ee5d1dbf495ce18ea8c0984f333229faa&=&format=webp&quality=lossless&width=1050&height=1050)
+
+![Birthday Sheet 2](https://media.discordapp.net/attachments/1094801817881280592/1202663268129316994/image.png?ex=65ce4673&is=65bbd173&hm=77f4f00b9ce8119db8a7665b19dc6b188fcdab65b49fdd42d41e48b8a138ad79&=&format=webp&quality=lossless&width=1866&height=1050)
+
+
+
+That’s already it, wow time flies! I don’t want to talk to you about birthday all day thinking of the other fun sections we have this month, we still wish everyone a happy birthday and hope they all had a great day.
+
+~ Section made by nvcklqces and cinnohbun
+
 
