@@ -65,39 +65,53 @@ Ellooo everyone! Welcome to our first newsletter of the New Year. Yippie! Nothin
 
 Greetings Teethyz, welcome to the Q&A section of this month’s newsletter. I have asked a few questions to four of our lovely HRs and MRs. Take a look below and have fun reading! 
 
-
 > (Q.) What’s your favourite childhood memory?
 
+> (Q.) How late is too late to cancel a plan with someone?
 
 Interviewer: ashlvqh
 
 
 Interviewee: crdigvn (MR)
 
-(A.) My favourite childhood memory would be when I went up in the mountains and built snowmen with my parents!
+(1A.) My favourite childhood memory would be when I went up in the mountains and built snowmen with my parents!
+
+
+(2A.) 1-2 hours before is too late to cancel a plan!
+
 
 Interviewer: ashlvqh
 
 
 Interviewee: tcires (HR)
 
-(A.) Some of my favourite childhood memories involve my sister because we're really close. One of my favourites is when we had to make ourselves breakfast because our parents were both busy (we were both young) and we didn't really know how so we kind of just put a lot of random things together. It tasted really bad and it was super messy but we had a lot of fun.
+(1A.) Some of my favourite childhood memories involve my sister because we're really close. One of my favourites is when we had to make ourselves breakfast because our parents were both busy (we were both young) and we didn't really know how so we kind of just put a lot of random things together. It tasted really bad and it was super messy but we had a lot of fun.
+
+
+(2A.) I think an hour before is too late to cancel a plan, because it can take people a long time to get ready. If they were in the middle of getting ready and you just cancelled then that'd be inconvenient.
+
 
 Interviewer: ashlvqh
 
 
 Interviewee: mariesluvqs (HR)
 
-(A.) My favourite childhood memory is picking up acorns on my front lawn with my grandma when she came to visit Canada. We would put them all in a bag and we had a huge collection of them!
+(1A.) My favourite childhood memory is picking up acorns on my front lawn with my grandma when she came to visit Canada. We would put them all in a bag and we had a huge collection of them!
+
+
+(2A.) I think that 2 days before is considered too late to cancel a plan. At that point, I’d already be getting excited and have my schedule planned, so it’s annoying when someone cancels at the last minute.
 
 Interviewer: ashlvqh
 
 
 Interviewee: 24k_sxnny (MR)
 
-(A.) My favourite childhood memory was being myself, not having to care what people thought about me; spending time with family and enjoying my childhood.
+(1A.) My favourite childhood memory was being myself, not having to care what people thought about me; spending time with family and enjoying my childhood.
 
-~ Section by 
+
+(2A.) Definitely last minute!! 
+
+~ Section by ashlvqh
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -111,7 +125,7 @@ Interviewee: 24k_sxnny (MR)
 
 ![Word Search Sheet](https://cdn.discordapp.com/attachments/1094758945828114452/1197580248594788463/IMG_4760.png?ex=65c50305&is=65b28e05&hm=aa9d8aa11a0596038ecc01b84a594d3ebd8779aadf50a856b5c7ba6e2c5663c2&)
 
-~ Section by 
+~ Section by shinylaccy
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -187,7 +201,7 @@ Do your homework the day you get it assigned. That way, you won't have to stress
 
 We hope that these will be useful to all of you who are reading this. Best of luck!
 
-~ Section by 
+~ Section by steveygamer2 & Didiek
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -272,7 +286,7 @@ That's all for this month's section of MR/HR/Alliance OTM! Congratulations to al
 
 (Insert Link later)
 
-~Section by 
+~Section by Blueqxia & vcorria
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 ![Birthday's](https://cdn.discordapp.com/attachments/1094801817881280592/1199864234268426290/IMG_6364.gif?ex=65cd5225&is=65badd25&hm=828e228e9e60e384655ff7c1fcc5761772ce45bd5a21dc5f8e20587c45365719&)
@@ -291,6 +305,6 @@ Over the month January we obviously had some amazing MR+ birthdays come up, let�
 
 That’s already it, wow time flies! I don’t want to talk to you about birthday all day thinking of the other fun sections we have this month, we still wish everyone a happy birthday and hope they all had a great day.
 
-~ Section made by nvcklqces and cinnohbun
+~ Section made by nvcklqces, cinnohbun & avuhcxdo
 
 
