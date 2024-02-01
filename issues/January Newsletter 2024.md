@@ -1,4 +1,4 @@
-![alt text](image.jpg)
+![January Banner](https://cdn.discordapp.com/attachments/1094801817881280592/1202649964316991538/image.png?ex=65ce3a0f&is=65bbc50f&hm=7bc7c68b7ac56fe55985a61b7b3ea272678c83dca026d93291ddf906387dd3cb&)
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 Ellooo everyone! Welcome to our first newsletter of the New Year. Yippie! Nothing much as happened in the month of January, but we have a ton of cool topics from Milestones to Study tips! Hope you give this a read!
