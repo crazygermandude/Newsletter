@@ -204,15 +204,15 @@ Interviewer: mariesluvqs
 
 Interviewee: iiNotNia
 
-『1. What was your reaction after finding out you were selected for MROTM? 
+『**1. What was your reaction after finding out you were selected for MROTM?**
 
 A. I was really shocked and happy!!』
 
-『2. What’s some advice you’d give to LRs trying to get MR?
+『**2. What’s some advice you’d give to LRs trying to get MR?**
 
 A. Not to give up and keep going. Also not to over work yourself.』
 
-『3. What’s some advice you’d give to anyone trying to get OTM?
+『**3. What’s some advice you’d give to anyone trying to get OTM?**
 
 A. Believe in yourself, help others around you and do more than you normally do.』
 
@@ -225,15 +225,15 @@ Interviewer: mariesluvqs
 
 Interviewee: iixtxshaxii
 
-『1. What was your reaction after finding out you were selected for HROTM?
+『**1. What was your reaction after finding out you were selected for HROTM?**
 
 A. Wow! I was in disbelief, honestly shocked. I was so glad that I had been recognised for my hard work over this month and just unbelievably grateful.』
 
-『2. What’s some advice you’d give to LRs trying to get MR?
+『**2. What’s some advice you’d give to LRs trying to get MR?**
 
 A. Just keep trying. I know it’s hard sometimes but it will all be worth it. Attend shifts, recruitment and normal and just be yourself. Never change and try to push yourself infront of HRs for MR, it makes you seem needy but always be friendly!』
 
-『3. What’s some advice you’d give to anyone trying to get OTM?
+『**3. What’s some advice you’d give to anyone trying to get OTM?**
 
 A. To be completely honest, I think staying active but not burning yourself out is the main thing. Also a main thing, I tried to balance in game and discord activeness! Not just one or the other.』
 
@@ -246,11 +246,11 @@ Interviewer: mariesluvqs
 
 Interviewee: arvtiql
 
-『1. What is something you enjoy about being affiliated with Teethyz?
+『**1. What is something you enjoy about being affiliated with Teethyz?**
 
 A. Something I enjoy about being affiliated with Teethyz is that Teethyz is an amazing alliance! They have such a wonderful community with lovely staff that are always willing to help you whenever needed. Teethyz is also a very supportive alliance to us!』
 
-『2. What's one thing about Teethyz that stands out to you the most?
+『**2. What's one thing about Teethyz that stands out to you the most?**
 
 A. One thing that Teethyz stands out to me the most is that Teethyz is a very unique group with the concept of it being a dentist, I don't really see dentist groups much on Roblox and Teethyz also grew a lot in these past few years making it the most popular dentist group on Roblox!』
 
