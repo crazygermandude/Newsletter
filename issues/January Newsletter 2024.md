@@ -187,3 +187,81 @@ We hope that these will be useful to all of you who are reading this. Best of lu
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Greetings, Teethyz! We are thrilled to present the MR/HR/Alliance OTM  section for January. I've been able to have an interview with each of these individuals and groups, so please enjoy reading their answers.♡
+
+> January's MROTM was **iiNotNia**! Her contributions to Teethyz are very appreciated, as well as her constant hard work and efforts. Here are some of her responses to the interview questions: 
+
+Interviewer: mariesluvqs
+Interviewee: iiNotNia
+
+『1. What was your reaction after finding out you were selected for MROTM? 
+
+A. I was really shocked and happy!!』
+
+『2. What’s some advice you’d give to LRs trying to get MR?
+
+A. Not to give up and keep going. Also not to over work yourself.』
+
+『3. What’s some advice you’d give to anyone trying to get OTM?
+
+A. Believe in yourself, help others around you and do more than you normally do.』
+
+> Next, here is the interview with our HROTM, **iixtxshaxii**! She's extremely dedicated to the group and helps improve Teethyz in so many ways. Here are her reponses: 
+
+Interviewer: mariesluvqs
+Interviewee: iixtxshaxii
+
+『1. What was your reaction after finding out you were selected for HROTM?
+
+A. Wow! I was in disbelief, honestly shocked. I was so glad that I had been recognised for my hard work over this month and just unbelievably grateful.』
+
+『2. What’s some advice you’d give to LRs trying to get MR?
+
+A. Just keep trying. I know it’s hard sometimes but it will all be worth it. Attend shifts, recruitment and normal and just be yourself. Never change and try to push yourself infront of HRs for MR, it makes you seem needy but always be friendly!』
+
+『3. What’s some advice you’d give to anyone trying to get OTM?
+
+A. To be completely honest, I think staying active but not burning yourself out is the main thing. Also a main thing, I tried to balance in game and discord activeness! Not just one or the other.』
+
+> Lastly, we were able to get an interview with one of the Public Relations officers at our alliance of the month... **Coast**! We're very grateful to be affiliated with this establishment, so here are their answers:
+
+Interviewer: mariesluvqs
+Interviewee: arvtiql
+
+『1. What is something you enjoy about being affiliated with Teethyz?
+
+A. Something I enjoy about being affiliated with Teethyz is that Teethyz is an amazing alliance! They have such a wonderful community with lovely staff that are always willing to help you whenever needed. Teethyz is also a very supportive alliance to us!』
+
+『2. What's one thing about Teethyz that stands out to you the most?
+
+A. One thing that Teethyz stands out to me the most is that Teethyz is a very unique group with the concept of it being a dentist, I don't really see dentist groups much on Roblox and Teethyz also grew a lot in these past few years making it the most popular dentist group on Roblox!』
+
+That's all for this month's section of MR/HR/Alliance OTM! Congratulations to all of you, and thanks for reading! ♡
+
+~ Section by mariesluvqs
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![TikTok](https://cdn.discordapp.com/attachments/1094801817881280592/1199864224772530348/IMG_6363.gif?ex=65cd5223&is=65badd23&hm=df44450cb2eeee82f6c76d97c1b3b91908aeda547439cedd7b99d4546568efdc&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+🦷 **Tiktok**
+
+• Sometimes some MRs wish that they could express their opinions freely towards trollers, but they always make sure to hold back and act professionally. Our Social Assistants have therefore decided to make a Tiktok about this! Make sure to check out our page. :))
+!
+
+(Insert Link later)
+
+~Section by 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+![Birthday's](https://cdn.discordapp.com/attachments/1094801817881280592/1199864234268426290/IMG_6364.gif?ex=65cd5225&is=65badd25&hm=828e228e9e60e384655ff7c1fcc5761772ce45bd5a21dc5f8e20587c45365719&)
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Over the month January we obviously had some amazing MR+ birthdays come up, let’s get a quick rewind of most of them!
+
+(Insert Link Later) 
+
