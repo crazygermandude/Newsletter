@@ -307,4 +307,26 @@ That’s already it, wow time flies! I don’t want to talk to you about birthda
 
 ~ Section made by nvcklqces, cinnohbun & avuhcxdo
 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+► Thank you for reading our November Newsletter! See you next month.
+
+~ ♚ Credits! ♚ ~
+
+Lead Newsletter Board: XxCandy2372xX
+
+Newsletter Board: PerfectlyAnnie, EleqantEmma, RBLXWithEmily, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: bearfuhl, michallol7, Avocado4Life301, swocieties
+
+Section Authors: mariesluvqs, havivq, Furnface, ashlvqh, vcorria, steveygamer2, bvcrls, cinnohbun,  
+
+Photographers: Mrs_KawaiiCat, zeiqios, Didi_ek, Vinnielittle14, NewSwitcherop
+
+Social Assistants: Blueqxia, e2milys, islafq, JasJolly, shiny_laccy, vaemmlaqx
+
+Editors: dietvivi, TailaBzp, Cas6nx, iaylaaz, kkennedys
+
 
