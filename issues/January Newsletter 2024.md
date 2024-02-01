@@ -70,21 +70,29 @@ Greetings Teethyz, welcome to the Q&A section of this month’s newsletter. I ha
 
 
 Interviewer: ashlvqh
+
+
 Interviewee: crdigvn (MR)
 
 (A.) My favourite childhood memory would be when I went up in the mountains and built snowmen with my parents!
 
 Interviewer: ashlvqh
+
+
 Interviewee: tcires (HR)
 
 (A.) Some of my favourite childhood memories involve my sister because we're really close. One of my favourites is when we had to make ourselves breakfast because our parents were both busy (we were both young) and we didn't really know how so we kind of just put a lot of random things together. It tasted really bad and it was super messy but we had a lot of fun.
 
 Interviewer: ashlvqh
+
+
 Interviewee: mariesluvqs (HR)
 
 (A.) My favourite childhood memory is picking up acorns on my front lawn with my grandma when she came to visit Canada. We would put them all in a bag and we had a huge collection of them!
 
 Interviewer: ashlvqh
+
+
 Interviewee: 24k_sxnny (MR)
 
 (A.) My favourite childhood memory was being myself, not having to care what people thought about me; spending time with family and enjoying my childhood.
