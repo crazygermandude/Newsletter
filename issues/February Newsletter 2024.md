@@ -211,6 +211,8 @@ On the 13th of February, the second day of our spirit week, EleqantEmma hosted a
 
 
 **":)"**
+
+
 For the third day of our spirit week, nothing was hosted as it was Valentine's Day and everyone was spending time with their loved ones. 
 
 ✎ › **Art Contest**
