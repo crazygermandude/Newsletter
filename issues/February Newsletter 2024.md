@@ -361,23 +361,9 @@ That is all for the MR/HR/Alliance otm section, thank you all for reading and ha
 
 🎂 ﹒ Heyyy! Hope you've been enjoying the Newsletter so far! This month, we had a whole bunch of fabulous MRs+ birthdays! Let's give a quick re-cap! 
 
- ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
-flowersandrainbowzz -> 01/01/2024
-🎉 ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
-ii_axtumns -> 02/05/2024
-🪩 ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
-prvttywhenyoucry -> 02/08/2024
-👯‍♀️ ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
-mckcnzies -> 02/08/2024
-🎉 ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
-sannadreamx -> 02/11/2024 -> 02/20/2024 
-🪩 ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
-cwinnapaw -> 02/20/2024
-👯‍♀️ ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
-avthenas -> 02/24/2024
-🎉 ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
-steveygamer2 -> 02/24/2024
- ︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒
+
+![Birthday Sheet]( https://github.com/RobloxTeethyz/Newsletter/blob/e549516b9c17600f662ec97564fd088807fa3ffc/TD%20Val%20Birth.png)
+
 
 Woo! Happy late birthday! That concludes all of the Birthdays for February, see you next month!
 
