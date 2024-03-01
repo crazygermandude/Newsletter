@@ -207,7 +207,7 @@ On Monday, the first day of the spirit week, there was supposed to be a "Guess T
 
 On the 13th of February, the second day of our spirit week, EleqantEmma hosted an unbelievably creative "Valentine's Letters" event. Here, you had the opportunity to write one or multiple letters to your loved ones. This event was really successful, as over 300 letters were sent. Feel free to check out the letters written below: ⤸
 
-	[Valentine's Day Cards](https://docs.google.com/spreadsheets/u/5/d/1mQEF4gR8ml2WxTG0VkOGKTZ0KMYCRkbnrY1nNPC7oaI/htmlview#gid=737364671)
+	https://docs.google.com/spreadsheets/u/5/d/1mQEF4gR8ml2WxTG0VkOGKTZ0KMYCRkbnrY1nNPC7oaI/htmlview#gid=737364671
 
 
 **":)"**
@@ -230,6 +230,8 @@ On Friday, RBLXWithEmily hosted a Valentine's word search. There were 17 hidden 
 On the sixth day of our spirit week, XxCandy2372xX planned a "Be Mine" festival. Sadly, it didn't take place due to technical difficulties. But wait! Chrissy still managed to host an amazing game night, Guess Who! At the dentist, there were cutouts of our MR+'s avatars and they were also described. The first to guess the MR correctly won! Congratulations to everyone who won during this mini-game.
 
 ❤︎ › **Heart PNG**
+
+
 For the last day of our spirit week, PerfectlyAnnie and Kecai hosted an adorable event together, "Heart PNGs". This was such a cute event to end things off with as everyone was able to send their personalized hearts and what they love in #community-photos. This was, as all the other ones, an amazing event which I and many others truly enjoyed.
 
 This was a summary of our spirit week. I hope you all enjoyed and, if you participated, had fun! Which of these was your favourite event? Let me know! :）
@@ -367,6 +369,26 @@ That is all for the MR/HR/Alliance otm section, thank you all for reading and ha
 
 Woo! Happy late birthday! That concludes all of the Birthdays for February, see you next month!
 
-✧･ﾟ**Section by - vcorria**
+✧･ﾟ**Section by - vcorria & Graphics Team**
 
-▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+► Thank you for reading our November Newsletter! See you next month.
+
+~ ♚ Credits! ♚ ~
+
+Lead Newsletter Board: XxCandy2372xX
+
+Newsletter Board: PerfectlyAnnie, EleqantEmma, aimlvma, RBLXWithEmily, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: bearfuhl, michallol7, Avocado4Life301, swocieties
+
+Section Authors: mariesluvqs, havivq, Furnface, ashlvqh, vcorria, steveygamer2, bvcrls, cinnohbun,  
+
+Photographers: Mrs_KawaiiCat, zeiqios, Didi_ek, Vinnielittle14, NewSwitcherop
+
+Social Assistants: Blueqxia, e2milys, islafq, JasJolly, shiny_laccy, vaemmlaqx
+
+Editors: dietvivi, TailaBzp, Cas6nx, iaylaaz, kkennedys
