@@ -4,6 +4,8 @@
 Ello everyone! Welcome to our February newsletter. Ah yes, the month of love! A lot of things happened this month and all of it is included here in this newsletter. Make sure to give this a read!
 
 ~ Teethyz Newsletter
+
+*Note! Due to technical difficulties with the site, banners and graphics are not loading in so it'll be fixed later on in the day!*
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 ![Awarness Banner](https://github.com/RobloxTeethyz/Newsletter/blob/32c713c68e55988ed74b2f9077a3a4be5884f664/Awareness_Banner.gif)
