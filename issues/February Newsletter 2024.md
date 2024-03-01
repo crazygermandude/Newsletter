@@ -6,7 +6,7 @@ Ello everyone! Welcome to our February newsletter. Ah yes, the month of love! A 
 ~ Teethyz Newsletter
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![Awarness Banner](https://github.com/RobloxTeethyz/Newsletter/blob/32c713c68e55988ed74b2f9077a3a4be5884f664/awareness_banner.gif)
+![Awarness Banner](https://github.com/RobloxTeethyz/Newsletter/blob/32c713c68e55988ed74b2f9077a3a4be5884f664/Awareness_Banner.gif)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -30,7 +30,7 @@ Lunar New Year is a festive celebration which marks the start of the lunar calen
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![ValInterview Banner](https://github.com/RobloxTeethyz/Newsletter/blob/de30f3d03970e7b5138552ac70d5fe0e28bc750a/valentines_interview.gif)
+![ValInterview Banner](https://github.com/RobloxTeethyz/Newsletter/blob/de30f3d03970e7b5138552ac70d5fe0e28bc750a/Valentines_Interview.gif)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -137,7 +137,7 @@ That's all for our interviews! We hope you all had a lovely Valentines day!
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![Memories Banner](https://github.com/RobloxTeethyz/Newsletter/blob/5c50640370f0a09d0a580e24d09fee78a5d4dc91/ceb%20memories.gif)
+![Memories Banner](https://github.com/RobloxTeethyz/Newsletter/blob/5c50640370f0a09d0a580e24d09fee78a5d4dc91/ceb%20Memories.gif)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -174,7 +174,7 @@ Oh yes we are saving the best for last! We are back with some funny photos! We h
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![WordSearch Banner](https://github.com/RobloxTeethyz/Newsletter/blob/835b8710e1fb5143aba6ee05ceaf0f4a219210ea/wordsearch.gif)
+![WordSearch Banner](https://github.com/RobloxTeethyz/Newsletter/blob/835b8710e1fb5143aba6ee05ceaf0f4a219210ea/Wordsearch.gif)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -182,13 +182,13 @@ Oh yes we are saving the best for last! We are back with some funny photos! We h
 
 • Perfect for the Valentines Season, our Newsletter Team decided to create a lovely Word Search. Throughout the sheet, we have 12 Valentines-related words hidden. Make sure to check thoroughly because some may be difficult to find, but there are also those that may be simple to find. We sincerely hope you like it, good luck! 🌹
 
-![WordSearch Sheet](https://github.com/RobloxTeethyz/Newsletter/blob/ba81b14e5200389e1539cbb9d36e2e9810acc00b/valwordsearch.png)
+![WordSearch Sheet](https://github.com/RobloxTeethyz/Newsletter/blob/ba81b14e5200389e1539cbb9d36e2e9810acc00b/ValWordSearch.png)
 
 ~ **Section by Didi_ek**
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![TD SpiritWeek Banner](https://github.com/RobloxTeethyz/Newsletter/blob/4eb8362b1177da0dd2be84c8897409f13730ed38/spirit%20week.gif)
+![TD SpiritWeek Banner](https://github.com/RobloxTeethyz/Newsletter/blob/4eb8362b1177da0dd2be84c8897409f13730ed38/Spirit%20Week.gif)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -243,7 +243,7 @@ This was a summary of our spirit week. I hope you all enjoyed and, if you partic
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![OTM Banner](https://github.com/RobloxTeethyz/Newsletter/blob/87bf5d06418d51cd69962e4fdf5b8505b8434edc/otm.gif)
+![OTM Banner](https://github.com/RobloxTeethyz/Newsletter/blob/87bf5d06418d51cd69962e4fdf5b8505b8434edc/OTM.gif)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -357,7 +357,7 @@ That is all for the MR/HR/Alliance otm section, thank you all for reading and ha
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-![Birthday Banner](https://github.com/RobloxTeethyz/Newsletter/blob/a23fd4667003b81611713675c57a003819f08db0/birthdays.gif)
+![Birthday Banner](https://github.com/RobloxTeethyz/Newsletter/blob/a23fd4667003b81611713675c57a003819f08db0/Birthdays.gif)
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
@@ -366,7 +366,7 @@ That is all for the MR/HR/Alliance otm section, thank you all for reading and ha
 🎂 ﹒ Heyyy! Hope you've been enjoying the Newsletter so far! This month, we had a whole bunch of fabulous MRs+ birthdays! Let's give a quick re-cap! 
 
 
-![Birthday Sheet]( https://github.com/RobloxTeethyz/Newsletter/blob/e549516b9c17600f662ec97564fd088807fa3ffc/td%20val%20birth.png)
+![Birthday Sheet]( https://github.com/RobloxTeethyz/Newsletter/blob/e549516b9c17600f662ec97564fd088807fa3ffc/TD%20Val%20Birth.png)
 
 
 Woo! Happy late birthday! That concludes all of the Birthdays for February, see you next month!
