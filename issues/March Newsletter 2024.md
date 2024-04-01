@@ -492,7 +492,9 @@ Thank you so much to Ambrielle (yourfavasiian) from Kohau for taking time out of
 • **Tiktok** 🍀
 Hi everyone! Were you also so excited like our team was when we started working on this Newsletter? We hope you enjoy our tiktok, make sure to follow us on Tiktok!
 
-(Link will be inserted later) 
+https://www.tiktok.com/@teethyz.official/video/7352924497915202846?lang=en 
+
+~ **Section by Tradewinds2810 & eviegracea** 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂ 
 
@@ -528,11 +530,11 @@ Site Provider/Advisor: Jyrezo
 
 Graphics: michallol7, Avocado4Life301 
 
-Section Authors: mariesluvqs, Furnface, ashlvqh, vcorria, steveygamer2, stcrbwrries, 
+Section Authors: mariesluvqs, Furnface, ashlvqh, vcorria, steveygamer2, stcrbwrries, fantzsq, iichxr_1, chvrsvuh
 
 Photographers: zeiqios, Didi_ek, Vinnielittle14, NewSwitcherop
 
-Social Assistants: shiny_laccy, vaemmlaqx, Cas6nx
+Social Assistants: shiny_laccy, vaemmlaqx, Cas6nx, Choiisiiwon, eviegracea, 
 
 Editors: TailaBzp, kkennedys, ordinarythngs, Duhhhitzmariahh, 1uvxflqra, flowersandrainbowzz
 
