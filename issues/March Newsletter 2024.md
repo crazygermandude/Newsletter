@@ -505,5 +505,14 @@ Hi everyone! Were you also so excited like our team was when we started working 
 🌷 — March is filled with many MR+ birthdays and some of the March babies have shared the delightful experiences of their birthday celebrations.
 
 
+![March Bdays](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/92f145d7-a212-4882-affe-89e19dbc4e5e)
 
-Section by Choiisiiwon and stcrbwrries ⊹ ࣪ ˖
+
+
+![March bday 2](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/c801dd02-92ce-40e7-9780-7ebfa6b1251d)
+
+
+~ **Section by Choiisiiwon,stcrbwrries & avuhcxdo** ⊹ ࣪ ˖
+
+
+
