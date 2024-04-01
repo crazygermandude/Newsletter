@@ -514,5 +514,25 @@ Hi everyone! Were you also so excited like our team was when we started working 
 
 ~ **Section by Choiisiiwon,stcrbwrries & avuhcxdo** ⊹ ࣪ ˖
 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+► Thank you for reading our November Newsletter! See you next month.
+
+~ ♚ Credits! ♚ ~
+
+Lead Newsletter Board: XxCandy2372xX
+
+Newsletter Board: PerfectlyAnnie, EleqantEmma, aimlvma, RBLXWithEmily, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: michallol7, Avocado4Life301 
+
+Section Authors: mariesluvqs, Furnface, ashlvqh, vcorria, steveygamer2, stcrbwrries, 
+
+Photographers: zeiqios, Didi_ek, Vinnielittle14, NewSwitcherop
+
+Social Assistants: shiny_laccy, vaemmlaqx, Cas6nx
+
+Editors: TailaBzp, kkennedys, ordinarythngs, Duhhhitzmariahh, 1uvxflqra, flowersandrainbowzz
 
