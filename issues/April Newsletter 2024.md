@@ -359,7 +359,7 @@ Section Authors: mariesluvqs, Furnface, ashlvqh, vcorria, steveygamer2, stcrbwrr
 
 Photographers: zeiqios, Didi_ek, Vinnielittle14, NewSwitcherop
 
-Social Assistants: shiny_laccy, vaemmlaqx, Cas6nx, Choiisiiwon, eviegracea, 
+Social Assistants: shiny_laccy, vaemmlaqx, Cas6nx, Choiisiiwon, eviegracea, Tradewinds2810
 
 Editors: TailaBzp, kkennedys, ordinarythngs, Duhhhitzmariahh, 1uvxflqra, flowersandrainbowzz
 
