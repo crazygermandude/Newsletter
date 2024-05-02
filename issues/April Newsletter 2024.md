@@ -313,7 +313,8 @@ A: My advice for this would be basically the same as for LRs, do your best work,
 ✧˚ · . Hii! Welcome to the Tiktok Section. In this section, our Newsletter Team has created a tiktok for you all to enjoy! We hope you like it!
 
 
-https://github.com/RobloxTeethyz/Newsletter/assets/142175439/37ca1b71-be75-4327-bb05-6629192a5adb
+Make sure to visit our tiktok page to view it. ;) 
+https://www.tiktok.com/@teethyz.official/video/7364443094822980894?lang=en 
 
 
 ~ **Made by vaemmlaqx and shiny_laccy!**
