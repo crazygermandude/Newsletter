@@ -239,7 +239,7 @@ __**Finals Tips:**__
 ![funny](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/0216394b-9302-4c88-9842-a208a31a3dda)
 
 
-That's all for our April Newsletter! We hope you enjoyed these collages as much as we enjoyed making them. See you next time!
+That's all for our May Newsletter! We hope you enjoyed these collages as much as we enjoyed making them. See you next time!
 
 
 **_Section by Photography Team._**
