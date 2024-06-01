@@ -268,7 +268,7 @@ That's all for our April Newsletter! We hope you enjoyed these collages as much 
 ˚‧ **What events were there, who won the events and when did they take place?**
 
 
-__Friday, 3rd of May: Guess the song, hosted by Witty20007! __
+_Friday, 3rd of May: Guess the song, hosted by Witty20007!_
 
 
 - Firstly, Witty hosted a Guess the song. For those who don’t know what this is, it consists on listening to different Disney songs and the participants had to share their guesses in #community. To be honest, you all are so good at it! From Let it go (Frozen) to You got a friend in Me (Toy Story), we were able to remember all about those songs that marked our childhood! Slayfulscarlett got the 1st prize in the event, and Tradewinds2810 and RobloxPro201222 got the 2nd prize together. Congratulations!
@@ -277,14 +277,14 @@ __Friday, 3rd of May: Guess the song, hosted by Witty20007! __
 - Furthermore, a **corporate shift** was hosted by Witty, where we played games such as four squares. We had a blast!
 
 
-__Saturday, 4th of May: Disney crosswords with Coast, hosted by michallol7!__
+_Saturday, 4th of May: Disney crosswords with Coast, hosted by michallol7!_
 
 
 - For the second day of our Disney spirit weekend, Meeka hosted a Disney crossword puzzle together with our wonderful affiliate Coast. Our 3 winners: D0II1y, lovqiixm and B4C0NB0Y_PL4YS won 300, 200 and 100 robux respectively. A huge thank you to Coast for organizing the event and everyone that participated!
 
 
 
-__Sunday, 5th of May: Disney Spot the Difference, hosted by mckcnzies!__
+_Sunday, 5th of May: Disney Spot the Difference, hosted by mckcnzies!_
 
 
 - A tangled themed, Spot the Difference was hosted. In this game, participants had to search for multiple differences between 2 similar pictures. Mayawasbored won first place. Congratulations! Also, congratulations to V1EWSCLUB for his 2nd place and 4ngelixy for her 3rd place. Also, a huge shoutout for everyone that participated!
