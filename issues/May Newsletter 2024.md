@@ -248,8 +248,368 @@ That's all for our April Newsletter! We hope you enjoyed these collages as much 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
+![8](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/8d8fa8f1-b6b4-4e77-8e7e-7da726b0baf1)
 
 
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+╭  · **__Disney Spirit Week Recap!__**
+
+
+✧˚ · . Hii, Teethyz community!! In this section, the Newsletter Team has prepared a recap of one of our amazing **Disney** events we had. You will see what this event is about, and some interviews with the winners of the event! **Rodrigo** will be writing about what happened in this event, then **Isabella** will be interviewing the winners!
+
+
+ ˚‧  **What was this event even about?**
+
+
+> From the 3th of May to the 5th of May, the Public Relations Department organized a Disney Spirit Weekend! We were able to play and enjoy different mini-games during the first weekend of May. It was so much fun to play some mini-games related to Disney. We all had a blast!
+
+
+˚‧ **What events were there, who won the events and when did they take place?**
+
+
+__Friday, 3rd of May: Guess the song, hosted by Witty20007! __
+
+
+- Firstly, Witty hosted a Guess the song. For those who don’t know what this is, it consists on listening to different Disney songs and the participants had to share their guesses in #community. To be honest, you all are so good at it! From Let it go (Frozen) to You got a friend in Me (Toy Story), we were able to remember all about those songs that marked our childhood! Slayfulscarlett got the 1st prize in the event, and Tradewinds2810 and RobloxPro201222 got the 2nd prize together. Congratulations!
+
+
+- Furthermore, a **corporate shift** was hosted by Witty, where we played games such as four squares. We had a blast!
+
+
+__Saturday, 4th of May: Disney crosswords with Coast, hosted by michallol7!__
+
+
+- For the second day of our Disney spirit weekend, Meeka hosted a Disney crossword puzzle together with our wonderful affiliate Coast. Our 3 winners: D0II1y, lovqiixm and B4C0NB0Y_PL4YS won 300, 200 and 100 robux respectively. A huge thank you to Coast for organizing the event and everyone that participated!
+
+
+
+__Sunday, 5th of May: Disney Spot the Difference, hosted by mckcnzies!__
+
+
+- A tangled themed, Spot the Difference was hosted. In this game, participants had to search for multiple differences between 2 similar pictures. Mayawasbored won first place. Congratulations! Also, congratulations to V1EWSCLUB for his 2nd place and 4ngelixy for her 3rd place. Also, a huge shoutout for everyone that participated!
+
+
+
+
+                                               •˙˚∘ **Interviewer**: flowersandrainbowzz 
+                                                     **Interviewee**: Slayfulscarlett
+
+
+୧ **Question:** *Did you have any strategies that helped you win the Disney Guess The Song? If so, what were they?*
+
+
+୧ **Answer:** *Well, if being a big Disney fan counts as a strategy, then I would say yes! I just adore visiting the Disney theme parks, listening to Disney music, and watching Disney movies and shows.*
+
+
+୧ **Question:** *What was your reaction to winning?*
+
+
+୧ **Answer:** *I was honestly shocked! This was one of the first events that I had taken part in here at Teethyz, and it was so much fun. I remember laughing and smiling the whole game. Winning was just a bonus of an already amazing event.*
+
+
+୧ **Question:** *Who is your favorite Disney character?*
+
+
+୧ **Answer:** *My favorite Disney character is probably Olaf because he’s so lovable and funny! Also, he has one of the best songs in Frozen.*
+
+
+                                               •˙˚∘ **Interviewer**: flowersandrainbowzz 
+                                                     **Interviewee**: Tradewinds2810
+
+
+୧ **Question:** *Did you have any strategies that helped you win the Disney Guess The Song? If so, what were they?*
+
+
+୧ **Answer:** *To be honest, I had no strategies! I didn’t expect to win. I just joined the Disney Guess The Song for fun as I don’t normally win these games.However, Witty said the songs started off easy and got harder so I predicted the first song would be Let It Go. So that’s how I got my first point!*
+
+
+୧ **Question:** *What was your reaction to winning?*
+
+
+୧ **Answer:** *I was quite shocked as I am not the biggest Disney fan on the planet and I can’t remember the last time I watched a Disney film. But I was very pleased with myself and felt accomplished that I came 2nd.*
+
+
+୧ **Question:** *Who is your favorite Disney character?*
+
+
+୧ **Answer:** *This is a tricky question! However my favourite Disney character would probably be Rapunzel from Tangled because I love her hair and I think her pet chameleon, Pascal is super cute!*
+
+
+                                               •˙˚∘ **Interviewer**: flowersandrainbowzz 
+                                                     **Interviewee**: RobloxPro201222
+
+
+୧ **Question:** *Did you have any strategies that helped you win the Disney Guess The Song? If so, what were they?*
+
+
+୧ **Answer:** *No not really, just having your volume up to hear the instrumentals better and watching ALOT of disney.*
+
+
+୧ **Question:** *What was your reaction to winning?*
+
+
+୧ **Answer:** *I was pretty happy! Although it was just a small game, I really enjoyed it and made some friends aswell!*
+
+
+୧ **Question:** *Who is your favorite Disney character?*
+
+
+୧ **Answer:** *Ahh there's alot to choose from, I'd probably say Tiana though!*
+
+
+                                               •˙˚∘ **Interviewer**: flowersandrainbowzz 
+                                                     **Interviewee**: Mayawasbored
+
+
+୧ **Question:** *Did you have any strategies that helped you win the Disney Spot The Difference? If so, what were they?*
+
+
+୧ **Answer:** *HONESTLY my strategy was to compare to pictures as quick as possible, I looked at common things, hair, animals, clothes, colors, shapes! I just knew that if I wanted to win I had to do it QUICKLY! I finished within 45 seconds ish and was extremely rushed!*
+
+
+୧ **Question:** *What was your reaction to winning?*
+
+
+୧ **Answer:** *VERY UNEXPECTED! I didn’t plan on participating and just timed it well, I thought oh well might as well do it! So honestly totally unexpected!*
+
+
+୧ **Question:** *Who is your favorite Disney character?*
+
+
+୧ **Answer:** *TIANA! I ADORE HER SM AND SHES STUNNING AND SO KIND HEARTED! And I also adore Olof ofc because who doesn’t like warm hugs!?*
+
+
+                                               •˙˚∘ **Interviewer**: flowersandrainbowzz 
+                                                     **Interviewee**: V1EWSCLUB
+
+
+୧ **Question:** *Did you have any strategies that helped you win the Disney Spot The Difference? If so, what were they?*
+
+
+୧ **Answer:** *Not much strategy was put into this challenge! Apart from the consistent amount of spot the differences I did when I was a kid, I kind of just went for it and hoped to earn a spot in the podium.*
+
+
+୧ **Question:** *What was your reaction to winning?*
+
+
+୧ **Answer:** *When I won, I was shocked! I did it all in a rush right before school so to see I actually earnt a place was amazing! I also was impressed at the 2 other people on the podium for also completing the challenge.*
+
+
+୧ **Question:** *Who is your favorite Disney character?*
+
+
+୧ **Answer:** *Hmmmm… if I had to choose a character I would probably say Aladdin!*
+
+
+                                               •˙˚∘ **Interviewer**: flowersandrainbowzz 
+                                                     **Interviewee**: 4ngelixy
+
+
+୧ **Question:** *Did you have any strategies that helped you win the Disney Guess The Song? If so, what were they?*
+
+
+୧ **Answer:** *I compared the little differences between the images, which helped me identify them more clearly!*
+
+
+୧ **Question:** *What was your reaction to winning?*
+
+
+୧ **Answer:** *It was a truely joyful experience to win, and I hope others will get a chance to win aswell!*
+
+
+୧ **Question:** *Who is your favorite Disney character?*
+
+
+୧ **Answer:** *Tiana from Princess and the frog🥰*
+
+
+That's it for the **Disney Recap Section**! We hope that you enjoyed it! Thank you so much for reading our May Newsletter, we really appreciate it!!
+
+
+**Section** by **flowersandrainbowzz** & **NewSwitcherop**!
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![9](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/6fbc14eb-4fa7-402b-8d3a-d74d73ff08f3)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+⋆.˚ ᡣ𐭩 . 👗 **Met Gala Outfits**
+
+
+Greetings, Teethyz community! On May 6th, 2024, was the annual Met Gala. We've decided to bring out our inner fashion designers and take our 5 favorite outfits to share with you all!
+ 
+
+⋆.˚ - (Didi_ek: Kylie Jenner)
+
+
+・For me, Kylie's outfit was probably the prettiest. Her dress was gorgeous, and the details looked divine. Kylie had perfect hair and looked absolutely stunning.
+ 
+
+⋆.˚ - (Didi_ek: Jennie)
+
+
+・And of course, Jennie from Blackpink must not be missing on this list! I absolutely adored her blue dress and heels. Her earrings were beautiful, and so was her hair. Jennie looked perfect!
+ 
+
+⋆.˚ - (Didi_ek: Tyla)
+
+
+・Tyla also had a very strange outfit. Her sand dress looked absolutely interesting, and so did the hourglass in her hand. Overall, she looked very beautiful.
+ 
+
+⋆.˚ - (iichxr_1: Cardi B)
+
+
+・Cardi B looked absolutely breathtaking in her picturesque, ruffled black gown and fur black ushanka hat. Her confidence and looks absolutely stole the show. 
+ 
+
+⋆.˚ - (iichxr_1: Jessica Biel)
+
+
+・Jessica Biel, wearing Cartier and Tamara Ralph, truly left us all with our mouths open in shock. Her flowy, pink dress with 3D floral elements gave her an aura of elegance while also matching the theme of the night.
+ 
+
+And that's all from us! We hope you enjoyed our reviews, and perhaps you even agree with some of them! Here's to a new month everyone!
+ 
+
+⋆.˚ ᡣ𐭩 . **Section by iichxr_1 and Didi_ek**
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![6](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/7b514247-dee4-4406-8293-c7781cbccb33)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+⋆.˚ ᡣ𐭩 . 🗒️  **OTM Interviews**
+
+
+Greetings Teethyz community! This month, I was given the opportunity to interview our lovely OTM winners (myself included). Below was what some of them had to say, plus a few tips for any aspiring MR's or HR's!
+
+
+---------
+
+
+**MROTM:**
+
+
+⋆.˚ - Interviewer: iichxr_1 (Yes, I’m aware of the irony. No comment).
+
+
+⋆.˚ - Interviewee: iichxr_1 
+
+
+--------- 
+
+
+・**Q:** What do you like to do in your spare time?
+
+
+・**A:** Well, I tend to cook and watch Youtube! On occasion I’ll also take walks and help my father with yard work. 
+
+
+・**Q:** What was your reaction to getting MROTM?
+
+
+・**A:** To be honest, I was shocked. I was in class (talking to Pluto on my phone, but regardless), and suddenly I got a flood of pings. When I saw I had won I was speechless. I was getting spammed from a bunch of people and I just couldn’t have felt happier. I was, and still am, so so grateful. 
+
+
+・**Q:** What's some advice you would give LR’s trying to become MR one day?
+
+
+・A: This is tricky. When trying to get MR, I know this advice is going to sound cliche and overused, but it’s advice many LR’s ignore anyways. Do NOT overwork yourself. Sure, activity is important. But nothing is so important that you should be in game for hours upon hours, disregarding your wellbeing for a promotion on an online game. It’s not worth it, you will burn out, and you will want to give up faster. 
+
+
+・**Q:** What was your journey here in the Teethyz community like?
+
+
+・**A:** Oh boy, well, that's a long period of time to sum up. But I’ll do the best I can. In October, 2021, I became an LR for the first time. I passed the very first TSA wave on January 3rd, 2022. Huge accomplishment considering it was the first wave (so most likely many applicants) and only around 24 people passed. Then, in April, I resigned. In May, I passed MOD trials, but resigned shortly after. Around June, I left for a little more than a year, and came back in September 2023. I became an MR in February, 2024, and the rest most of you already know.
+
+
+--------- 
+
+
+**HROTM:**
+
+
+⋆.˚ - Interviewer: iichxr_1
+
+
+⋆.˚ - Interviewee: TailaBzp
+
+--------- 
+
+
+・**Q:** What do you like to do in your spare time?
+
+
+・**A:** I like watching YouTube, Tiktok and Instagram Reels, Twitter and reading.
+
+
+・**Q:** What was your reaction to getting HROTM?
+
+
+・**A:** I was very angry, because my friend, Sammie, woke me up 40 minutes before my alarm went off. But I was quite happy afterwards.
+
+
+・**Q:** What's some advice you would give LR’s trying to become HR’s one day?
+
+
+・**A:** That's a great question. My advice is to think of situations from an HR viewpoint. That may help you prepare for the position. I think it's also important to have a big footprint in the community.
+
+
+・**Q:** What was your journey here in the Teethyz community like?
+
+
+・**A:** My MR journey was great. I ranked up fairly fast and, in my opinion, I feel like I got the hang of things pretty quick. HR was pretty good and still is good. I was an EA for 8 months, but that was the only major stop in my journey here.
+
+
+--------- 
+
+
+**Alliance OTM:**
+
+
+⋆.˚ - Interviewer: iichxr_1
+
+
+⋆.˚ - Interviewee: Hokui Public Relations 
+
+
+--------- 
+
+
+・**Q:** What has working with Teethyz been like from an affiliate perspective?
+
+
+・**A:** Working with Teethyz from an affiliate perspective has been awesome! They have amazing communication with constant checkups and in-game visits. We have been able to grow our partnership a lot and have so much love for the alliance.
+
+
+・**Q:** What's something you've enjoyed whilst being affiliated with Teethyz?
+
+
+・**A:** Something we've enjoyed while being in an alliance with Teethyz is having so many visit memories and also getting to speak with each other's Public Relations Teams. Some of our favorite memories will be below!
+
+
+・**Q:** Can you share one memorable factor of Teethyz Dentist that stands out to you?
+
+
+・**A:** One favorable memory that stands out to us is when we got to visit Teethyz for our first time. We had a group of Hokui Management Team Members visit the Dentistry!
+
+
+I hope you enjoyed hearing from our OTM winners! Stay cool, Teethyians.
+
+
+~ **Section by iichxr1**
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -260,3 +620,29 @@ That's all for our April Newsletter! We hope you enjoyed these collages as much 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+Hello wonderful Teethyz community! Here’s to another amazing edition of our newsletter. We hope you like our TikTok video and please follow us for more.
+
+For the audio, check out our tiktok page!
+
+
+![tiktok_2](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/840d2683-dfa5-4a71-ab49-c939272e9e0c)
+
+~ **Section by Choiisiiwon**
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![4](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/6498cb3a-7d8d-4ae7-89e3-bdb4a600676b)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+🤍 ﹒ Greetings, Teethyz! Back at it again with everyone's favourite section, birthdays! In May, we celebrated a bunch of MR+ birthdays, which are listed below. We also got the chance to interview them and learn about what they did for their birthday. We hope you enjoy this section, happy birthday to those who had a birthday in May!
+
+
+![May Birthdays](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/50e5f80f-58e0-44be-8b64-a069cc903faf)
+
+
+~ **Section by fantzsq & eviegracea & Graphics done by avuhcxdo** 
