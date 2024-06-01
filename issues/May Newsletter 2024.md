@@ -645,4 +645,26 @@ For the audio, check out our tiktok page!
 ![May Birthdays](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/50e5f80f-58e0-44be-8b64-a069cc903faf)
 
 
-~ **Section by fantzsq & eviegracea & Graphics done by avuhcxdo** 
+~ **Section by fantzsq & eviegracea & Graphics done by avuhcxdo**
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+► Thank you for reading our November Newsletter! See you next month.
+
+~ ♚ **Credits!** ♚ ~
+
+Lead Newsletter Board: XxCandy2372xX
+
+Newsletter Board: PerfectlyAnnie, EleqantEmma, aimlvma, RBLXWithEmily, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: michallol7, avuhcxdo 
+
+Section Authors: mariesluvqs, Furnface, ashlvqh, vcorria, steveygamer2, fantzsq, iichxr_1, chvrsvuh
+
+Photographers: zeiqios, Didi_ek, Vinnielittle14, NewSwitcherop
+
+Social Assistants: shiny_laccy, vaemmlaqx, Cas6nx, Choiisiiwon, eviegracea, Tradewinds2810
+
+Editors: TailaBzp, kkennedys, ordinarythngs, Duhhhitzmariahh, 1uvxflqra, flowersandrainbowzz
