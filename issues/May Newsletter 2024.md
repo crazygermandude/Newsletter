@@ -652,7 +652,7 @@ For the audio, check out our tiktok page!
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-► Thank you for reading our November Newsletter! See you next month.
+► Thank you for reading our May Newsletter! See you next month.
 
 ~ ♚ **Credits!** ♚ ~
 
