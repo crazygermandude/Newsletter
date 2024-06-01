@@ -622,7 +622,10 @@ I hope you enjoyed hearing from our OTM winners! Stay cool, Teethyians.
 
 Hello wonderful Teethyz community! Here’s to another amazing edition of our newsletter. We hope you like our TikTok video and please follow us for more.
 
-For the audio, check out our tiktok page!
+For the audio, check out our tiktok page! 
+
+
+!!! The video will be uploaded later today. !!!
 
 
 ![tiktok_2](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/840d2683-dfa5-4a71-ab49-c939272e9e0c)
