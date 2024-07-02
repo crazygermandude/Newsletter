@@ -287,6 +287,8 @@ A3: Jan is special to me for many reasons, but mainly because of her amazing qua
                 ︶︶︶︶︶︶︶
 
 This concludes our wonderful series of best friend interviews. Teethyz is full of amazing pairs and groups, and we are so excited to share all the insights we've gathered. A huge thank you to all our interviewees who made this possible; Your support is deeply appreciated.
+
+
   *— Section written by Ioviinqbr & svphiees <3*
 
 
@@ -698,3 +700,26 @@ Hello Teethyz! For the month of June, we've celebrated a bunch of MR+ birthday's
 
 
 ˗ˏˋ 🍰 **Section by Cas6nx and vcorria + Graphic Team** 
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+► Thank you for reading our May Newsletter! See you next month.
+
+~ ♚ **Credits!** ♚ ~
+
+Lead Newsletter Board: RBLXWithEmily & XxCandy2372xX 
+
+Newsletter Board: PerfectlyAnnie, EleqantEmma, aimlvma, mckcnzies, & witty20007
+
+Site Provider/Advisor: Jyrezo
+
+Graphics: michallol7, avuhcxdo, adqysvn, foundlilly, & azashinan
+
+Section Authors: Furnface, vcorria, steveygamer2, fwoIklore, iichxr_1, fevside, Ioviinqbr, mariesluvqs, svphiees, angelicpayton, lqvelxa, & ashlvqh
+
+Photographers: clarabcws, Mayawasbored, chwerriies, UhMeliaa, Didi_ek, NewSwitcherop, zeiqios, & Vinnielittle14
+
+Social Assistants: vaemmlaqx, cas6nx, Tradewinds2810, Choiisiiwon, & eviegracea
+
+Editors: TailaBzp, Lukefromthedead, aolqnii, Duhhhitzmariahh, flowersandrainbowzz, viqlvts, kkennedys, ordinarythngs, 1uvxflqra, & OceanAvny
