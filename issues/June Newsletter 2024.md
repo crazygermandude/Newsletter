@@ -6,7 +6,7 @@
 
 
 
-Ello everyone! Welcome back to our monthly newsletter. Everything in this newsletter will cover mostly everything that occured during June! BUT BEFORE WE GET INTO IT, there is a special announcement from the PR department regarding awareness! Please read below. 
+Ello everyone! Welcome back to our monthly newsletter. Everything in this newsletter will cover mostly everything that occured during June! BUT BEFORE WE GET INTO IT, there is a special announcement from the PR department regarding awareness! Please read below.
 
 
 
