@@ -293,7 +293,8 @@ This concludes our wonderful series of best friend interviews. Teethyz is full o
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-TBH SUMMER BUCKET LIST BANNER
+![image](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/343d5329-d3a7-44ff-9f3c-38a604cd8967)
+
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -504,65 +505,105 @@ During the ceremony we started with the **RED CARPET** section. PR and Events ha
 Once that was done the doors were opened for everyone to teleport to the main game, the awards ceremony. The winner of each category after hard campaigning was announced, let’s give them a shoutout here as well!
 
 
-__**LR CATEGORIES**__
-FURNFACEISHOT1 - Funniest LR
-
-bvnbons - Most Professional LR
-
-mrpickIewickle - Scariest LR
-
-calleighs - Most Talkative LR
-
-bakvry - Best Dressed LR
+http://tiny.cc/teethyzawards 
 
 
-__**MR CATEGORIES**__
-iichxr_1 - Funniest MR
-
-vaemmlaqx - Best Training Photos
-
-svphiees - Most Dedicated MR
-
-Lvauriies - Best Outfit
-
-Cas6nx - Best Investigator
-
-
-__**HR/SHR CATEGORIES**__
-Witty20007 - Scariest HR/SHR
-
-XxCandy2372xX - Most Ancient HR/SHR
-
-RBLXWithEmily - Friendliest HR/SHR
-
-stqrlls - Best Chat Stalker
-
-vcorria - Best Promotion Ideas
-
-
-__**STAFFING CATEGORIES**__
-stqrlls - Most Likely To Terminate The Wrong Person
-
-softleys & stqrlls - Best Staffing Officer
-
-
-__**PUBLIC RELATION CATEGORIES**__
-Witty20007 - Most Likely To Forget About An Event
-
-XxCandy2372xX - Best Relations Officer
+Section by **vaemmlaqx & Tradewinds2810**
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
-TBD OTM BANNER
+![image](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/26cac53b-b3fa-49b0-99a7-901a83339791)
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
+╭  🪩  · ˚ ∿ **OTM INTERVIEWS**
 
-something
+✦ ﹕Greetings, Teethyz community! This month we got the chance to interview our June staff and alliance of the month. We asked them a few questions and their responses were recorded below, we hope you enjoy!
 
+
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
+﹒ 🤍﹕ ✼ **LROTW Interview**
+
+**Interviewer:** fwoIklore 
+
+**Interviewee:** rosey6283
+
+**Question 1:** What was your reaction to getting LROTW?
+
+**Answer 1:** Well, I woke up and was like, "huh." Then I got told by my friends about what happened, and I was like, "that's so sick!!" So, I appreciate it a lot and I'm excited!
+
+**Question 2:** What would you say to other LRs trying to become LROTW?
+
+**Answer 2:** I'm not the best at this question, but I guess keep the hard work going but also go with the flow and make sure you're having fun with the game!! You got this! All your work is so cool and appreciated!
+
+
+
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
+
+﹒ 🤍﹕ ✼ **MROTM Interview**
+
+**Interviewer:** fwoIklore 
+
+**Interviewee:** svphiees
+
+**Question 1:** What was your reaction to getting MROTM?
+
+**Answer 1:** Honestly, I was really surprised! I was shifting at Teethyz, and I went to check my phone because I had so many notifications! Then, I checked and saw that I got MROTM! I was so grateful, and I never thought I could get such an honorable award! I felt super grateful, and I will be forever.
+
+**Question 2:** What's some advice you would give to LRs trying to get MR/HR?
+
+**Answer 2:** I recommend being active in game and on the communication server, but don’t overwork yourself! Trust me, please put your health above Teethyz, it’s more important. Don’t try to become an MR just for the rank, do it because you enjoy working here. Please also be kind to people, your personality plays a huge role! However, make sure to be yourself; don’t try to change anything just to fit in with others. I promise your username or avatar doesn’t have anything to do with your chances of becoming a MR! Good luck, I believe in all of you!! <3
+
+
+
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
+
+﹒ 🤍﹕ ✼ **HROTM Interview**
+
+**Interviewer:** fantzsq
+
+**Interviewee:** PerfectlyAnnie
+
+**Question 1:** What was your reaction when you got HROTM?
+
+**Answer 1:** I was super excited and surprised because I wasn’t expecting to get HROTM!
+
+**Question 2:** What's some advice you would give to LRs trying to get MR/HR?
+
+**Answer 2:** I would say to keep working hard. Sometimes you’re going to get unmotivated, and that’s okay. In reality, if it’s something you really want, you can do it! Just don’t give up!
+
+
+
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
+
+﹒ 🤍﹕ ✼ **Alliance Interview — Coast Restaurant**
+
+**Interviewer:** fantzsq
+
+**Interviewee:** tweddybrz (Coast PR)
+
+**Question 1:** What has working with Teethyz been like from an affiliate perspective?
+
+**Answer 1:** From my perspective, working with Teethyz has been amazing! They’re very active and manage to stay updated on everything. They also always check up on our representatives which is appreciated! The communication between us and theirs is also strong, and we’re honored to be partnered with such an amazing group!
+
+**Question2:** What's something you've enjoyed while being affiliated with Teethyz?
+
+**Answer 2:** Something I enjoy about Teethyz is how welcoming the community and Management Team are! Every time we visit, we feel welcomed, which is something we greatly appreciate. They’re always there to help and support us as well!
+
+**Question 3:** Can you share one memorable factor of Teethyz Dentist that stands out to you?
+
+**Answer 3:** One of my favorite memories with Teethyz was during an Alliance Visit with Coast’s community! We were warmly welcomed when we arrived, then took a memorable photo to commemorate our visit! We also had the opportunity to test out their procedures and explore Teethyz’s establishment, which was a lot of fun for all of us! We’ve shared many other memorable moments with Teethyz, and look forward to creating even more together!
+
+
+
+︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵ ﹒︵
+
+Thank you for reading, we hope you enjoyed the OTM section of this months newsletter!
+
+- *Section written by fantzsq & fwoIklore*
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
@@ -631,8 +672,8 @@ That's all for this month's memories section! On behalf of the photography team,
 Hello wonderful Teethyz community! This time, Won and Grace made a special video featuring our favorite song, we hope you enjoy it and please follow us for more.
 
 
+![gif](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/87638478-7119-4183-bd96-be5c0d79a190)
 
-https://github.com/RobloxTeethyz/Newsletter/assets/142175439/7ec0e314-1bb6-4c5c-bdc9-44c9797db727
 
 **Section by Choiisiiwon & eviegracea** 
 
@@ -645,7 +686,15 @@ https://github.com/RobloxTeethyz/Newsletter/assets/142175439/7ec0e314-1bb6-4c5c-
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
+✿ ' 🎁 **June Birthdays!**  ݁ ˖
+
+Hello Teethyz! For the month of June, we've celebrated a bunch of MR+ birthday's, which is listed below. We've decided to interview them to get to know what kind of wishes they'd grant. Happy Birthday for those who had one in June!
+
+![image](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/d5415e20-a0aa-41d0-ae09-bb9e19104d04)
+
+
+![image](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/ff41e34c-a91a-42b7-b90a-317a7c6b0cd8)
 
 
 
-
+˗ˏˋ 🍰 **Section by Cas6nx and vcorria + Graphic Team** 
