@@ -705,7 +705,7 @@ Hello Teethyz! For the month of June, we've celebrated a bunch of MR+ birthday's
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-► Thank you for reading our May Newsletter! See you next month.
+► Thank you for reading our June Newsletter! See you next month.
 
 ~ ♚ **Credits!** ♚ ~
 
