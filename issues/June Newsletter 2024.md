@@ -161,7 +161,6 @@ We have also interviewed some amazing MR+ about their best friends! Below, you w
 
 
 ╭˚ʚ˚ ·˚ : ꒰ __**Interview Questions!**__꒱・ৎ —
-                    ︶︶︶︶︶︶︶
 
 
 Q1: What are some activities or traditions you and your best friend enjoy doing together?
@@ -427,8 +426,226 @@ Here are some things that **Fev** would recommend:
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 
+![summer awards](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/403fbb7c-3499-470e-b705-1b7121e783e3)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+**SUMMER AWARDS 2024**
+
+
+Greetings everyone! During June 2024 we had a lot of fun events going on, one being the summer awards! We interviewed some people and also wrote a small recap of how they went, now, without any further ado.. we'll present our Summer Awards!
+
+
+**INTERVIEWS**:
+
+
+**Interviewer: Tradewinds2810**
+
+
+**Interviewee: stqrlls**
+
+**Q1 -** What was your reaction to becoming a corporate advisor?
+
+
+**A1 -** I was in vc with quite a few people at the time, everyone was screaming and I was sat there speechless?! i’m defo in shock.
+
+
+**Q2 -** Did you expect to become a co-head of staffing?
+
+
+**A2 -** Noo not really, I don’t think I was expecting it all!! I haven’t fully processed it yet though. 😭
+
+
+╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
+
+**Interviewer: Tradewinds2810**
+
+
+**Interviewee: sikkiexx**
+
+
+**Q1 -** What was your reaction to winning most appreciative?
+
+
+**A1 -** I WAS HONESTLY SHAKING, I DIDN'T EXPECT IT AT ALL. IM SO GRATEFUL I CAN'T DESCRIBE IT!
+
+
+**Q2 -** Did you have any advice for people who would like to win awards?
+
+
+**A2-** DON'T OVER THINK IT! Be happy for others if they win STAY POSITIVE AND KIND VROS.
+
+
+╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮
+
+**Interviewer: Tradewinds2810**
+
+
+**Interviewee:  lvauriies**
+
+**Q1 -** What was your reaction to winning most Best dressed?
+
+
+**A1 -** Well I was on voice chat with Tasha, I was in disbelief so I just said “OH” but then it hit me and I was so happy! Side note: thank you to everyone who voted me!
+
+
+**Q2 -** Did you have any advice for people who would like to win awards?
+
+
+**A2 -** Campaign hard, haha it was a struggle but it was overall very very fun! Be creative with your campaigning too! Most importantly be nice as you always should be anyway!
+
+
+
+**AWARDS RECAP**:
+
+
+During the ceremony we started with the **RED CARPET** section. PR and Events had most of the Nominees walk over the red carpet, letting them pose for the fans. Everyone’s poses were stunning, and everyone had a great time.
+Once that was done the doors were opened for everyone to teleport to the main game, the awards ceremony. The winner of each category after hard campaigning was announced, let’s give them a shoutout here as well!
+
+
+__**LR CATEGORIES**__
+FURNFACEISHOT1 - Funniest LR
+
+bvnbons - Most Professional LR
+
+mrpickIewickle - Scariest LR
+
+calleighs - Most Talkative LR
+
+bakvry - Best Dressed LR
+
+
+__**MR CATEGORIES**__
+iichxr_1 - Funniest MR
+
+vaemmlaqx - Best Training Photos
+
+svphiees - Most Dedicated MR
+
+Lvauriies - Best Outfit
+
+Cas6nx - Best Investigator
+
+
+__**HR/SHR CATEGORIES**__
+Witty20007 - Scariest HR/SHR
+
+XxCandy2372xX - Most Ancient HR/SHR
+
+RBLXWithEmily - Friendliest HR/SHR
+
+stqrlls - Best Chat Stalker
+
+vcorria - Best Promotion Ideas
+
+
+__**STAFFING CATEGORIES**__
+stqrlls - Most Likely To Terminate The Wrong Person
+
+softleys & stqrlls - Best Staffing Officer
+
+
+__**PUBLIC RELATION CATEGORIES**__
+Witty20007 - Most Likely To Forget About An Event
+
+XxCandy2372xX - Best Relations Officer
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
 TBD OTM BANNER
 
 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+
+something
+
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![memories](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/d94608f4-72ab-4f04-b1b8-cfff469a7858)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+**ᯓ★˙⋆.˚ June 2024 Memories!  ˚⋅**
+
+₊ ⊹ Greetings, Teethyz community! This month, we captured a lot of great memories which we hope you’ll like. Make yourself comfy and get ready for these amazing collages, made by our best photography team! 
+
+**ᶻ 𝗓 𐰁 .ᐟ Shift Photos**
+> What's this? Oh! Our favorite part, shift photos! Here are some cute photos taken by individuals on our wonderful Management Team. Why don't you take a look? They are adorable!
+
+
+![image](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/b7a87de0-713f-4802-99f2-9225fd2ba940)
+
+
+**ᶻ 𝗓 𐰁 .ᐟ Training Photos**
+> It’s time for our management team to shine, just like they do everytime! This month, our management team has truly outdid themselves with the training photos. Don’t believe me? Take a look yourself! 
+
+
+![image](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/8bc275cb-673d-49b3-b2ee-a2e9c22018c7)
+
+
+
+**ᶻ 𝗓 𐰁 .ᐟ Alliance Photos**
+> Whoah! Alliance photos? Of course! Please enjoy our alliance photos of this month.
+
+
+![image](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/def2c860-2b08-41ae-b181-c5975f402f4d)
+
+
+**ᶻ 𝗓 𐰁 .ᐟ Funny Photos**
+> It's time for a laugh! We are back again this month with a bunch of hilarious photos. We hope this can brighten your day with a little laugh!
+
+
+![image](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/fe075078-6f09-447f-8a63-14fac312eb10)
+
+
+**ᶻ 𝗓 𐰁 .ᐟ Summer Awards Photos**
+> On June the 15th, we had our annual summer awards. We awarded our winners, congratulated some promotions, and had a fun time overall. I want to give a massive congratulations to all of our winners and nominees, all of you did amazing! Grab some snacks, sit back, relax, and enjoy this collage.
+
+
+![summer](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/9bac29b0-d079-4fe4-83b6-ed4196f900c4)
+
+
+
+That's all for this month's memories section! On behalf of the photography team, we hope all of you loved taking a look at all the memories we collected during June, from Teethyz Summer Awards to some training and alliance photos! See you next time!
+
+
+***Photography team.***
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![tiktok](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/50dcc64d-bcca-4fce-84cc-9077b3427400)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+Hello wonderful Teethyz community! This time, Won and Grace made a special video featuring our favorite song, we hope you enjoy it and please follow us for more.
+
+
+
+https://github.com/RobloxTeethyz/Newsletter/assets/142175439/7ec0e314-1bb6-4c5c-bdc9-44c9797db727
+
+**Section by Choiisiiwon & eviegracea** 
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+![birth](https://github.com/RobloxTeethyz/Newsletter/assets/142175439/1397c239-7e5b-43ee-8018-32e16a0ae58f)
+
+
+▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
+
+
+
+
 
